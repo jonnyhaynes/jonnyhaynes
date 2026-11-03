@@ -1,12 +1,16 @@
 <a href="https://jonnyhaynes.com" title="Have a poke around">
   <picture>
     <source
-      media="(prefers-color-scheme: dark)"
+      media="(prefers-color-scheme: dark) and (prefers-reduced-motion: no-preference)"
       type="image/svg+xml"
       srcset="assets/profile-header-dark.svg"
     />
     <source media="(prefers-color-scheme: dark)" srcset="assets/profile-header-dark.png" />
-    <source type="image/svg+xml" srcset="assets/profile-header.svg" />
+    <source
+      media="(prefers-reduced-motion: no-preference)"
+      type="image/svg+xml"
+      srcset="assets/profile-header.svg"
+    />
     <img
       src="assets/profile-header.png"
       alt="Ey up! I’m Jonny. Full-Stack Developer, based in Rotherham, Yorkshire."
