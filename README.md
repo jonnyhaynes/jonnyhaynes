@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> Last on the turntable: **[Car Crash](https://open.spotify.com/track/5T7lbdtvIk9S1gEo0jCW4U)** — The Reytons
+> On the turntable: **[The Drifter Returns](https://open.spotify.com/track/06wO7xZDVzAsL2XOeKShDG)** — Clutch
 <!-- now-playing:end -->
 
 ### Selected work
