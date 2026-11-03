@@ -1,14 +1,16 @@
-<picture>
-  <source
-    media="(prefers-color-scheme: dark)"
-    srcset="assets/profile-header-dark.png"
-  />
-  <img
-    src="assets/profile-header.png"
-    alt="Ey up! I’m Jonny. Full-Stack Developer, based in Rotherham, Yorkshire."
-    width="1200"
-  />
-</picture>
+<a href="https://jonnyhaynes.com" title="Have a poke around">
+  <picture>
+    <source
+      media="(prefers-color-scheme: dark)"
+      srcset="assets/profile-header-dark.png"
+    />
+    <img
+      src="assets/profile-header.png"
+      alt="Ey up! I’m Jonny. Full-Stack Developer, based in Rotherham, Yorkshire."
+      width="1200"
+    />
+  </picture>
+</a>
 
 I build high-impact web and mobile products with a design-led eye — mostly at
 [HMA Digital](https://www.hma.co.uk/), where I work on cross-platform apps like
