@@ -2,8 +2,11 @@
   <picture>
     <source
       media="(prefers-color-scheme: dark)"
-      srcset="assets/profile-header-dark.png"
+      type="image/svg+xml"
+      srcset="assets/profile-header-dark.svg"
     />
+    <source media="(prefers-color-scheme: dark)" srcset="assets/profile-header-dark.png" />
+    <source type="image/svg+xml" srcset="assets/profile-header.svg" />
     <img
       src="assets/profile-header.png"
       alt="Ey up! I’m Jonny. Full-Stack Developer, based in Rotherham, Yorkshire."
