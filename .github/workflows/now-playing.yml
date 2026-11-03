@@ -1,8 +1,10 @@
 name: Update now playing
 
+# Dispatched every 10 minutes by the Cloudflare Worker cron in
+# jonnyhaynes/jonnyhaynes-web (worker/index.js). GitHub's own `schedule:`
+# trigger was removed: runs were delayed or dropped, and this repo saw no
+# scheduled runs at all in its first hours.
 on:
-  schedule:
-    - cron: '*/30 * * * *'
   workflow_dispatch:
 
 permissions:
