@@ -1,0 +1,39 @@
+name: Update now playing
+
+on:
+  schedule:
+    - cron: '*/30 * * * *'
+  workflow_dispatch:
+
+permissions:
+  contents: write
+
+concurrency:
+  group: now-playing
+  cancel-in-progress: true
+
+jobs:
+  update:
+    runs-on: ubuntu-latest
+    steps:
+      - uses: actions/checkout@v4
+
+      - uses: actions/setup-node@v4
+        with:
+          node-version: 22
+
+      - name: Update the now-playing line
+        env:
+          NOW_PLAYING_URL: https://jonnyhaynes.com/api/now-playing
+        run: node scripts/update-now-playing.mjs
+
+      - name: Commit if the line changed
+        run: |
+          if git diff --quiet README.md; then
+            exit 0
+          fi
+          git config user.name "github-actions[bot]"
+          git config user.email "41898282+github-actions[bot]@users.noreply.github.com"
+          git add README.md
+          git commit -m "Update now playing"
+          git push
