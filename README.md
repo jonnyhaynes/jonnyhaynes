@@ -10,14 +10,11 @@
   />
 </picture>
 
-Ey up! I’m Jonny — a front-end leaning full-stack developer with a design
-background, building React, React Native and TypeScript products in Rotherham,
-Yorkshire.
-
-I’ve been building for the web since 2006. Most of it has been at
+I build high-impact web and mobile products with a design-led eye — mostly at
 [HMA Digital](https://www.hma.co.uk/), where I work on cross-platform apps like
 [Calm Harm](https://apps.apple.com/gb/app/calm-harm/id961611581) and
-[DigiBete](https://www.digibete.org/), and keep a foot in design.
+[DigiBete](https://www.digibete.org/). I’ve been building for the web since
+2006.
 
 <!-- now-playing:start -->
 > Last on the turntable: **[Car Crash](https://open.spotify.com/track/5T7lbdtvIk9S1gEo0jCW4U)** — The Reytons
