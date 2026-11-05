@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> Last on the turntable: **[Where the Dead Ships Dwell](https://open.spotify.com/track/459enxUuE0F6ToP4YrC7UX)** — In Flames
+> Last on the turntable: **[Requiem](https://open.spotify.com/track/1zKyKTqKn3Ekf2FbpkIZ7W)** — The Qemists
 <!-- now-playing:end -->
 
 ### Selected work
