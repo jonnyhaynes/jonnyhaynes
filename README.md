@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Chancer](https://open.spotify.com/track/6fGv6OOjC863PxU0a7selC)** — The K's
+> On the turntable: **[Nothing's As It Seems](https://open.spotify.com/track/0VfpUQSFv8YHrcf4U0kGwJ)** — The Clause
 <!-- now-playing:end -->
 
 ### Selected work
