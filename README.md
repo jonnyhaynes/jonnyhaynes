@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[The Island, Pt. I \(Dawn\)](https://open.spotify.com/track/1Thv8uCYzyOFC7PME9J936)** — Pendulum
+> On the turntable: **[Halo](https://open.spotify.com/track/5nksa8EqKHSWO9WBj6DnmS)** — Machine Head
 <!-- now-playing:end -->
 
 ### Selected work
