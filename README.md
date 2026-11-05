@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Tranquilo](https://open.spotify.com/track/3gj4D6Qr4sTqjuYvVnTXDz)** — The Cheap Thrills
+> On the turntable: **[Elephants](https://open.spotify.com/track/1bHJQgkyDJQHhfLgLk9duY)** — The Snuts
 <!-- now-playing:end -->
 
 ### Selected work
