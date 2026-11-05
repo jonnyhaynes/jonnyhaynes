@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Knuckles](https://open.spotify.com/track/4Ko3NpExzZe0BBDDV6IZc8)** — The Snuts
+> On the turntable: **[Fever Dream](https://open.spotify.com/track/0VGqjJAi62JZ5mYpXJya3r)** — The Clause
 <!-- now-playing:end -->
 
 ### Selected work
