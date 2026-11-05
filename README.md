@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Deliver Us](https://open.spotify.com/track/24fWeFwEJQlce7B3grrgR1)** — In Flames
+> On the turntable: **[Until the World Goes Cold](https://open.spotify.com/track/1hPKSQuvfLlPeIu8xhRyTf)** — Trivium
 <!-- now-playing:end -->
 
 ### Selected work
