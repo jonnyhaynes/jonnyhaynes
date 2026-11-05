@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Until the World Goes Cold](https://open.spotify.com/track/1hPKSQuvfLlPeIu8xhRyTf)** — Trivium
+> On the turntable: **[Decadence](https://open.spotify.com/track/0jY829pCMnstlNtaE72vSB)** — Disturbed
 <!-- now-playing:end -->
 
 ### Selected work
