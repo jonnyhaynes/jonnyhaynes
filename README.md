@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[A Truth Worth Lying For](https://open.spotify.com/track/58Hx7vKWjxuQyZ9XgUh3Wl)** — The Halo Effect
+> On the turntable: **[Come Alive](https://open.spotify.com/track/032EMy8DqOqgKkF5wJm21w)** — Pendulum
 <!-- now-playing:end -->
 
 ### Selected work
