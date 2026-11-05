@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Villainous Victorian](https://open.spotify.com/track/4TBeqkVhZoVME4exqIX4dV)** — The Lathums
+> On the turntable: **[Try That](https://open.spotify.com/track/7MLA2hLiIKOXbmXufIDrXB)** — Slates
 <!-- now-playing:end -->
 
 ### Selected work
