@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Voodoo People - Pendulum Mix](https://open.spotify.com/track/5wqlRFdpJ1a4kMIBSWeCnN)** — The Prodigy, Pendulum
+> On the turntable: **[Slam](https://open.spotify.com/track/5cw39FV9eXL3IuLxwpG8Z1)** — Pendulum
 <!-- now-playing:end -->
 
 ### Selected work
