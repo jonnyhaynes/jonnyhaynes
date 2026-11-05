@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Better Late Than Never](https://open.spotify.com/track/3Skokovy1pILX2dhmp1AOc)** — The Kairos
+> On the turntable: **[Lucky Bean](https://open.spotify.com/track/0I1MCxXBoICdfRGE3kfsSf)** — The Lathums
 <!-- now-playing:end -->
 
 ### Selected work
