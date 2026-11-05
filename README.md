@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Be Your Drug](https://open.spotify.com/track/73KET3327jJ8M42hVqRIEw)** — Circa Waves
+> On the turntable: **[Right Time](https://open.spotify.com/track/6ShMhtk1om88amkkiUrpS9)** — overpass
 <!-- now-playing:end -->
 
 ### Selected work
