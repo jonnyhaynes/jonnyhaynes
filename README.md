@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Seven In Search Of Ten](https://open.spotify.com/track/6rshlnhbP3PqWMohlP4RwT)** — The Reytons
+> On the turntable: **[Tranquilo](https://open.spotify.com/track/3gj4D6Qr4sTqjuYvVnTXDz)** — The Cheap Thrills
 <!-- now-playing:end -->
 
 ### Selected work
