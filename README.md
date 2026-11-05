@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[I Am Above](https://open.spotify.com/track/2t1G0rDxUY9zjML3f5mObb)** — In Flames
+> On the turntable: **[Voodoo People - Pendulum Mix](https://open.spotify.com/track/5wqlRFdpJ1a4kMIBSWeCnN)** — The Prodigy, Pendulum
 <!-- now-playing:end -->
 
 ### Selected work
