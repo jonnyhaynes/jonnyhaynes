@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Harrison Lesser](https://open.spotify.com/track/4U3oFjDJSTIoMoopVcsbf5)** — The Reytons
+> On the turntable: **[Say My Name](https://open.spotify.com/track/396Cq1FGhsChbIxzwXa4rQ)** — The Lathums
 <!-- now-playing:end -->
 
 ### Selected work
