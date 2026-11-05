@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Landslide](https://open.spotify.com/track/3iQZVEIW9K4uDeaBEsO3w9)** — The Reytons
+> On the turntable: **[Worry](https://open.spotify.com/track/6X5usnFkDHDfpJuohFQj3K)** — The Lottery Winners
 <!-- now-playing:end -->
 
 ### Selected work
