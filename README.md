@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Say My Name](https://open.spotify.com/track/396Cq1FGhsChbIxzwXa4rQ)** — The Lathums
+> On the turntable: **[The Bends \(Here We Go Again\)](https://open.spotify.com/track/5KWn5w6LgdbgLVjaVvmvZU)** — The K's
 <!-- now-playing:end -->
 
 ### Selected work
