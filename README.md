@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Behind Enemy Lines](https://open.spotify.com/track/3zDOIq65sammclEKsEYHbm)** — The Reytons
+> On the turntable: **[Knuckles](https://open.spotify.com/track/4Ko3NpExzZe0BBDDV6IZc8)** — The Snuts
 <!-- now-playing:end -->
 
 ### Selected work
