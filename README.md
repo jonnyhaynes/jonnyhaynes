@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Redefined](https://open.spotify.com/track/5vJOEsehrXRC3Fz6gwAK7X)** — As I Lay Dying
+> On the turntable: **[Game Over](https://open.spotify.com/track/27oqpECc2wygxRAIBCgxHa)** — Machine Head
 <!-- now-playing:end -->
 
 ### Selected work
