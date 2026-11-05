@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Blow](https://open.spotify.com/track/1QQPdR1BYLoZyYe8C8XW9C)** — Atreyu
+> On the turntable: **[Devour](https://open.spotify.com/track/65f3M1uGKcxbCpXP3KLUOm)** — Shinedown
 <!-- now-playing:end -->
 
 ### Selected work
