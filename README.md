@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Soundcheck](https://open.spotify.com/track/60W7Co2AoP5VVG5Gwu6p5P)** — Catfish and the Bottlemen
+> On the turntable: **[Low Life](https://open.spotify.com/track/5fDd1hdcHCWF3Px8HnylHe)** — The Reytons
 <!-- now-playing:end -->
 
 ### Selected work
