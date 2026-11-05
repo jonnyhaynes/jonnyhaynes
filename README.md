@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Nineteen Crimes](https://open.spotify.com/track/0OK3H20RyZBLlgbPPOxtbf)** — The Reytons
+> On the turntable: **[Pigeons in New York](https://open.spotify.com/track/0adXBT0I39zPrk4RC01jho)** — The Snuts
 <!-- now-playing:end -->
 
 ### Selected work
