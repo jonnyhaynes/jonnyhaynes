@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Market Street](https://open.spotify.com/track/4uTRgR6IsSGFnlJzhHyOC8)** — The Reytons
+> On the turntable: **[You're Not That Daft](https://open.spotify.com/track/244Qi3DthhVGYNvG0W5gzr)** — The Lilacs
 <!-- now-playing:end -->
 
 ### Selected work
