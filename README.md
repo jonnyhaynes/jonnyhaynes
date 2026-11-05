@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Nothing's As It Seems](https://open.spotify.com/track/0VfpUQSFv8YHrcf4U0kGwJ)** — The Clause
+> On the turntable: **[Fascist Funny Man](https://open.spotify.com/track/7imZPntCmgoIb3fCrbbe9D)** — The Kairos
 <!-- now-playing:end -->
 
 ### Selected work
