@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Omen](https://open.spotify.com/track/2fplVRbbr1cBG7K5xt1hTE)** — The Prodigy
+> On the turntable: **[Warrior Sound](https://open.spotify.com/track/1dulPKC81n7AjE6oMINBrC)** — The Qemists
 <!-- now-playing:end -->
 
 ### Selected work
