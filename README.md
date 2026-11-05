@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Ill Ray \(The King\)](https://open.spotify.com/track/0WruOD5fP4RJ1kAn3Pcv3h)** — Kasabian
+> On the turntable: **[Harrison Lesser](https://open.spotify.com/track/4U3oFjDJSTIoMoopVcsbf5)** — The Reytons
 <!-- now-playing:end -->
 
 ### Selected work
