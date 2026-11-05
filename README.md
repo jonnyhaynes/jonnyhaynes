@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Glasgow](https://open.spotify.com/track/6nCFIb0seIECUijbDpYNDu)** — The Snuts
+> On the turntable: **[Suspend](https://open.spotify.com/track/7vBwdVCWvrMKaUVj8fXeDB)** — The Kairos
 <!-- now-playing:end -->
 
 ### Selected work
