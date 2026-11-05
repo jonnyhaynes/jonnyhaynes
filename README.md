@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Suspend](https://open.spotify.com/track/7vBwdVCWvrMKaUVj8fXeDB)** — The Kairos
+> On the turntable: **[Showtime](https://open.spotify.com/track/0YLhxYUv69go9H8iirbSWO)** — Catfish and the Bottlemen
 <!-- now-playing:end -->
 
 ### Selected work
