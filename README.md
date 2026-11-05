@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Saw](https://open.spotify.com/track/4HPrgYRpShQ7da64ssK3xP)** — Orbit Culture
+> On the turntable: **[Deliver Us](https://open.spotify.com/track/24fWeFwEJQlce7B3grrgR1)** — In Flames
 <!-- now-playing:end -->
 
 ### Selected work
