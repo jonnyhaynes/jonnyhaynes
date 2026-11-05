@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Try That](https://open.spotify.com/track/7MLA2hLiIKOXbmXufIDrXB)** — Slates
+> On the turntable: **[Chancer](https://open.spotify.com/track/6fGv6OOjC863PxU0a7selC)** — The K's
 <!-- now-playing:end -->
 
 ### Selected work
