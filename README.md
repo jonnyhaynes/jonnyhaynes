@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[TV](https://open.spotify.com/track/5njwSs1HwZu7WqS4tPKCun)** — The K's
+> On the turntable: **[No Direction](https://open.spotify.com/track/3oOxNC3S3N0S4e5q09zI5p)** — The Lathums
 <!-- now-playing:end -->
 
 ### Selected work
