@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[The Bends \(Here We Go Again\)](https://open.spotify.com/track/5KWn5w6LgdbgLVjaVvmvZU)** — The K's
+> On the turntable: **[P.O.P](https://open.spotify.com/track/36NaQ2ii51FGjDPG9s8876)** — The Kairos
 <!-- now-playing:end -->
 
 ### Selected work
