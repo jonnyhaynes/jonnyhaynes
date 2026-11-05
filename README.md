@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Love In Transaction](https://open.spotify.com/track/2qNhM5qLPp41s3py4Zj9BE)** — The Reytons
+> On the turntable: **[I Am Above](https://open.spotify.com/track/2t1G0rDxUY9zjML3f5mObb)** — In Flames
 <!-- now-playing:end -->
 
 ### Selected work
