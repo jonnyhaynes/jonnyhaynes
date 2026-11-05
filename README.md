@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Charlemagne](https://open.spotify.com/track/7H5WVBQdSnJ1zmu8JoD6pg)** — Blossoms
+> On the turntable: **[Fight On](https://open.spotify.com/track/66duVGNVSFRDg4rcTH561l)** — The Lathums
 <!-- now-playing:end -->
 
 ### Selected work
