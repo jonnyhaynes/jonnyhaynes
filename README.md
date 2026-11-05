@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Falling Down](https://open.spotify.com/track/4FSzFdrCg4m1d0lN08IQXr)** — Atreyu
+> On the turntable: **[Redefined](https://open.spotify.com/track/5vJOEsehrXRC3Fz6gwAK7X)** — As I Lay Dying
 <!-- now-playing:end -->
 
 ### Selected work
