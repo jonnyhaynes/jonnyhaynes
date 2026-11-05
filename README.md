@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Black Hole](https://open.spotify.com/track/1g5Jqwo02PuitYfv19B6Jn)** — We Came As Romans, Caleb Shomo
+> On the turntable: **[The Island, Pt. I \(Dawn\)](https://open.spotify.com/track/1Thv8uCYzyOFC7PME9J936)** — Pendulum
 <!-- now-playing:end -->
 
 ### Selected work
