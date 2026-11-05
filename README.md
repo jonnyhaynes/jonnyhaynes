@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Come Alive](https://open.spotify.com/track/032EMy8DqOqgKkF5wJm21w)** — Pendulum
+> On the turntable: **[Black Hole](https://open.spotify.com/track/1g5Jqwo02PuitYfv19B6Jn)** — We Came As Romans, Caleb Shomo
 <!-- now-playing:end -->
 
 ### Selected work
