@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Lucky Bean](https://open.spotify.com/track/0I1MCxXBoICdfRGE3kfsSf)** — The Lathums
+> On the turntable: **[Be Your Drug](https://open.spotify.com/track/73KET3327jJ8M42hVqRIEw)** — Circa Waves
 <!-- now-playing:end -->
 
 ### Selected work
