@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Circle The Drain](https://open.spotify.com/track/61nq0jg2PYWxUUiarofGBI)** — Machine Head
+> On the turntable: **[Omen](https://open.spotify.com/track/2fplVRbbr1cBG7K5xt1hTE)** — The Prodigy
 <!-- now-playing:end -->
 
 ### Selected work
