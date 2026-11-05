@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Anything](https://open.spotify.com/track/1JblvWxcwHXMLth0c6ssFy)** — Catfish and the Bottlemen
+> On the turntable: **[Ill Ray \(The King\)](https://open.spotify.com/track/0WruOD5fP4RJ1kAn3Pcv3h)** — Kasabian
 <!-- now-playing:end -->
 
 ### Selected work
