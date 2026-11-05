@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Heart On My Sleeve](https://open.spotify.com/track/5TNlAZXZFB3fUObberh7ry)** — The K's
+> On the turntable: **[Better Late Than Never](https://open.spotify.com/track/3Skokovy1pILX2dhmp1AOc)** — The Kairos
 <!-- now-playing:end -->
 
 ### Selected work
