@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[RNR](https://open.spotify.com/track/6CchjJXxMKc5cbPw407gKR)** — Bilk
+> On the turntable: **[Love In Transaction](https://open.spotify.com/track/2qNhM5qLPp41s3py4Zj9BE)** — The Reytons
 <!-- now-playing:end -->
 
 ### Selected work
