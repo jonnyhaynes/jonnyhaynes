@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Immunize \(feat. Liam Howlett\)](https://open.spotify.com/track/75Ik1zcZSvXSVCFHPwQr4E)** — Pendulum, Liam Howlett
+> Last on the turntable: **[Shaped By Fire](https://open.spotify.com/track/2BH57oJ5d8H4uEUwRXAJaB)** — As I Lay Dying
 <!-- now-playing:end -->
 
 ### Selected work
