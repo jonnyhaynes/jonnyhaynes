@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Showdown](https://open.spotify.com/track/1kvnmJ67M3ByVx4y3ou2iP)** — Pendulum
+> On the turntable: **[Two Become One](https://open.spotify.com/track/5ZvWrmUIfzwNLpVISMqeI1)** — Atreyu
 <!-- now-playing:end -->
 
 ### Selected work
