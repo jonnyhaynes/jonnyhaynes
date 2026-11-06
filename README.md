@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Self vs Self \(feat. In Flames\)](https://open.spotify.com/track/2lN6G35gsXkA3xzPYqmis5)** — Pendulum, In Flames
+> On the turntable: **[In Waves](https://open.spotify.com/track/1yYr4D1KjhhyDD5bZIiFQy)** — Trivium
 <!-- now-playing:end -->
 
 ### Selected work
