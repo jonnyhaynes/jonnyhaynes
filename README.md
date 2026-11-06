@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Stricken](https://open.spotify.com/track/6RJdYpFQwLyNfDc5FbjkgV)** — Disturbed
+> On the turntable: **[Shadowminds](https://open.spotify.com/track/3Zoi4yRZUi3HUB1mFRubXu)** — The Halo Effect
 <!-- now-playing:end -->
 
 ### Selected work
