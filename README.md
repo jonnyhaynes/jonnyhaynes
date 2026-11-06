@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Stan](https://open.spotify.com/track/3UmaczJpikHgJFyBTAJVoz)** — Eminem, Dido
+> On the turntable: **[Toxic](https://open.spotify.com/track/6I9VzXrHxO9rA9A5euc8Ak)** — Britney Spears
 <!-- now-playing:end -->
 
 ### Selected work
