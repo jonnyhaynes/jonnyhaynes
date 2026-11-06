@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Now We Die](https://open.spotify.com/track/6IORbcZIZM3JiAE5eKH8v0)** — Machine Head
+> On the turntable: **[Instability](https://open.spotify.com/track/0hNgeS6kzIC4Rtdz4L0jsN)** — Dragged Under
 <!-- now-playing:end -->
 
 ### Selected work
