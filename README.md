@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Bye Bye Bye](https://open.spotify.com/track/4r8lRYnoOGdEi6YyI5OC1o)** — \*NSYNC
+> On the turntable: **[Buttons - Music Video Edit](https://open.spotify.com/track/7gbBw0S8FEVstZByLSaXTf)** — The Pussycat Dolls, Snoop Dogg
 <!-- now-playing:end -->
 
 ### Selected work
