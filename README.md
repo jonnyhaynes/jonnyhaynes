@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Satisfaction - Isak Original Extended](https://open.spotify.com/track/1n7omixiROWs5q6xpWiQuL)** — Benny Benassi, The Biz
+> On the turntable: **[Murder On The Dancefloor](https://open.spotify.com/track/4tKGFmENO69tZR9ahgZu48)** — Sophie Ellis-Bextor
 <!-- now-playing:end -->
 
 ### Selected work
