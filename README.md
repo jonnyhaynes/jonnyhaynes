@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Shadowminds](https://open.spotify.com/track/3Zoi4yRZUi3HUB1mFRubXu)** — The Halo Effect
+> On the turntable: **[Rejection Role](https://open.spotify.com/track/2cZlwQvxwAFFTNb2xCGDl4)** — Soilwork
 <!-- now-playing:end -->
 
 ### Selected work
