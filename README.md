@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[It's Not Right But It's Okay](https://open.spotify.com/track/7861kBrZ5aw7o4NfggcyYW)** — Whitney Houston
+> On the turntable: **[Satisfaction - Isak Original Extended](https://open.spotify.com/track/1n7omixiROWs5q6xpWiQuL)** — Benny Benassi, The Biz
 <!-- now-playing:end -->
 
 ### Selected work
