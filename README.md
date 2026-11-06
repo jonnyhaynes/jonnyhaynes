@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Call on Me - Remastered](https://open.spotify.com/track/0354bUsaImfZdcU6L1EoLu)** — Eric Prydz
+> On the turntable: **[Bye Bye Bye](https://open.spotify.com/track/4r8lRYnoOGdEi6YyI5OC1o)** — \*NSYNC
 <!-- now-playing:end -->
 
 ### Selected work
