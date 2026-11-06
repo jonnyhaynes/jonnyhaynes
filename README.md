@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Rejection Role](https://open.spotify.com/track/2cZlwQvxwAFFTNb2xCGDl4)** — Soilwork
+> On the turntable: **[Get Up! \(feat. Skrillex\)](https://open.spotify.com/track/25EgA1A1OZBRw25Mjyw08g)** — Korn, Skrillex
 <!-- now-playing:end -->
 
 ### Selected work
