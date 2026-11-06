@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Cry Me a River](https://open.spotify.com/track/7Lf7oSEVdzZqTA0kEDSlS5)** — Justin Timberlake
+> On the turntable: **[Call on Me - Remastered](https://open.spotify.com/track/0354bUsaImfZdcU6L1EoLu)** — Eric Prydz
 <!-- now-playing:end -->
 
 ### Selected work
