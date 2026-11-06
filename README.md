@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> Last on the turntable: **[Holy Diver](https://open.spotify.com/track/3a9urnht8HvfFzPwd0ipx6)** — Killswitch Engage
+> On the turntable: **[Sound of You](https://open.spotify.com/track/4J4KcVmHSypHymgMpAP9cn)** — Pendulum, Armin van Buuren, Rob Swire
 <!-- now-playing:end -->
 
 ### Selected work
