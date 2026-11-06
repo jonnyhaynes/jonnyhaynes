@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Buttons - Music Video Edit](https://open.spotify.com/track/7gbBw0S8FEVstZByLSaXTf)** — The Pussycat Dolls, Snoop Dogg
+> On the turntable: **[It's Not Right But It's Okay](https://open.spotify.com/track/7861kBrZ5aw7o4NfggcyYW)** — Whitney Houston
 <!-- now-playing:end -->
 
 ### Selected work
