@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Get Up! \(feat. Skrillex\)](https://open.spotify.com/track/25EgA1A1OZBRw25Mjyw08g)** — Korn, Skrillex
+> Last on the turntable: **[Meet Your Maker](https://open.spotify.com/track/5qZMqZspIglsy4SJxtJt0S)** — In Flames
 <!-- now-playing:end -->
 
 ### Selected work
