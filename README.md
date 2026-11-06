@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Instability](https://open.spotify.com/track/0hNgeS6kzIC4Rtdz4L0jsN)** — Dragged Under
+> On the turntable: **[Showdown](https://open.spotify.com/track/1kvnmJ67M3ByVx4y3ou2iP)** — Pendulum
 <!-- now-playing:end -->
 
 ### Selected work
