@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Renegades - A Lost Generation](https://open.spotify.com/track/2mX8yyI3zLICo2Xw3sXKJc)** — Equilibrium
+> On the turntable: **[Now We Die](https://open.spotify.com/track/6IORbcZIZM3JiAE5eKH8v0)** — Machine Head
 <!-- now-playing:end -->
 
 ### Selected work
