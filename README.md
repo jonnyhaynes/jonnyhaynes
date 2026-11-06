@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Trigger](https://open.spotify.com/track/5Mm2WQ8hXn7Dj8s8AmwNDu)** — In Flames
+> On the turntable: **[Hate by Design](https://open.spotify.com/track/6xXIMiJeAHZZcoReecFZwD)** — Killswitch Engage
 <!-- now-playing:end -->
 
 ### Selected work
