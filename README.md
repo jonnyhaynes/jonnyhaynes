@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> Last on the turntable: **[Requiem](https://open.spotify.com/track/1zKyKTqKn3Ekf2FbpkIZ7W)** — The Qemists
+> On the turntable: **[Self vs Self \(feat. In Flames\)](https://open.spotify.com/track/2lN6G35gsXkA3xzPYqmis5)** — Pendulum, In Flames
 <!-- now-playing:end -->
 
 ### Selected work
