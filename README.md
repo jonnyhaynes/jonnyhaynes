@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[In Waves](https://open.spotify.com/track/1yYr4D1KjhhyDD5bZIiFQy)** — Trivium
+> On the turntable: **[Stricken](https://open.spotify.com/track/6RJdYpFQwLyNfDc5FbjkgV)** — Disturbed
 <!-- now-playing:end -->
 
 ### Selected work
