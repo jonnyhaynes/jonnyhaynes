@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Unwritten](https://open.spotify.com/track/3U5JVgI2x4rDyHGObzJfNf)** — Natasha Bedingfield
+> Last on the turntable: **[Sound Of The Underground](https://open.spotify.com/track/0SKjqIViHaXWhmaKuJbMrq)** — Girls Aloud
 <!-- now-playing:end -->
 
 ### Selected work
