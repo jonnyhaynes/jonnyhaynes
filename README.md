@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> Last on the turntable: **[Duality](https://open.spotify.com/track/61mWefnWQOLf90gepjOCb3)** — Slipknot
+> Last on the turntable: **[Master Of Puppets](https://open.spotify.com/track/2MuWTIM3b0YEAskbeeFE1i)** — Metallica
 <!-- now-playing:end -->
 
 ### Selected work
