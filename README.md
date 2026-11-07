@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Sonne - Live in Mexico City](https://open.spotify.com/track/2Zo7ON82zen5xctDkSZBdG)** — Rammstein
+> On the turntable: **[Paradise City](https://open.spotify.com/track/6eN1f9KNmiWEhpE2RhQqB5)** — Guns N' Roses
 <!-- now-playing:end -->
 
 ### Selected work
