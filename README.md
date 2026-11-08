@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Don't Stop Me Now](https://open.spotify.com/track/1NHWG8zxSEypSRF3UufrnO)** — Queen
+> On the turntable: **[Enter Sandman - Remastered 2021](https://open.spotify.com/track/3DwQ7AH3xGD9h65ezslm6q)** — Metallica
 <!-- now-playing:end -->
 
 ### Selected work
