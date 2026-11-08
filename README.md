@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> Last on the turntable: **[Billie Jean](https://open.spotify.com/track/7J1uxwnxfQLu4APicE5Rnj)** — Michael Jackson
+> On the turntable: **[Edge of Seventeen - 2016 Remaster](https://open.spotify.com/track/7L3b6iaVhDVjfo52Hbvh9Z)** — Stevie Nicks
 <!-- now-playing:end -->
 
 ### Selected work
