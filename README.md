@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Enter Sandman - Remastered 2021](https://open.spotify.com/track/3DwQ7AH3xGD9h65ezslm6q)** — Metallica
+> On the turntable: **[Killer Queen](https://open.spotify.com/track/46L5lm1Xzwr0TExEMpObtq)** — Queen
 <!-- now-playing:end -->
 
 ### Selected work
