@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Song 2 - 2012 Remaster](https://open.spotify.com/track/1FTSo4v6BOZH9QxKc3MbVM)** — Blur
+> Last on the turntable: **[Song 2 - 2012 Remaster](https://open.spotify.com/track/1FTSo4v6BOZH9QxKc3MbVM)** — Blur
 <!-- now-playing:end -->
 
 ### Selected work
