@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> Last on the turntable: **[1979 - Remastered 2012](https://open.spotify.com/track/5QLHGv0DfpeXLNFo7SFEy1)** — The Smashing Pumpkins
+> On the turntable: **[Dani California](https://open.spotify.com/track/10Nmj3JCNoMeBQ87uw5j8k)** — Red Hot Chili Peppers
 <!-- now-playing:end -->
 
 ### Selected work
