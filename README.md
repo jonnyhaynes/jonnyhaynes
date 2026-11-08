@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Shout](https://open.spotify.com/track/6UQDkQdtvj3f7F7edAsqda)** — Tears For Fears
+> On the turntable: **[Bohemian Rhapsody](https://open.spotify.com/track/2JiDi0qAXsPwhPqA2qaKGt)** — Queen
 <!-- now-playing:end -->
 
 ### Selected work
