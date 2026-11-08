@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Dani California](https://open.spotify.com/track/10Nmj3JCNoMeBQ87uw5j8k)** — Red Hot Chili Peppers
+> Last on the turntable: **[Scar Tissue](https://open.spotify.com/track/1G391cbiT3v3Cywg8T7DM1)** — Red Hot Chili Peppers
 <!-- now-playing:end -->
 
 ### Selected work
