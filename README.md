@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> Last on the turntable: **[Master Of Puppets](https://open.spotify.com/track/2MuWTIM3b0YEAskbeeFE1i)** — Metallica
+> On the turntable: **[Don't Stop Me Now](https://open.spotify.com/track/1NHWG8zxSEypSRF3UufrnO)** — Queen
 <!-- now-playing:end -->
 
 ### Selected work
