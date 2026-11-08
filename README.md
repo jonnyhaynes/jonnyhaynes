@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Bohemian Rhapsody](https://open.spotify.com/track/2JiDi0qAXsPwhPqA2qaKGt)** — Queen
+> On the turntable: **[Song 2 - 2012 Remaster](https://open.spotify.com/track/1FTSo4v6BOZH9QxKc3MbVM)** — Blur
 <!-- now-playing:end -->
 
 ### Selected work
