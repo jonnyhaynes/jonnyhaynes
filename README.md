@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Cold Hard Bitch](https://open.spotify.com/track/0wESZs7gN7TvfDbVP0w3Aw)** — Jet
+> On the turntable: **[When I Come Around](https://open.spotify.com/track/1Dr1fXbc2IxaK1Mu8P8Khz)** — Green Day
 <!-- now-playing:end -->
 
 ### Selected work
