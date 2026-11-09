@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Bad Habit](https://open.spotify.com/track/5tFzUj1jV09bo4wBQWSbDl)** — The Offspring
+> On the turntable: **[Love Buzz](https://open.spotify.com/track/5muVpPu8Fj9fXfDbbqDdrZ)** — Nirvana
 <!-- now-playing:end -->
 
 ### Selected work
