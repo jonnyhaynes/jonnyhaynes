@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Mellowship Slinky in B Major](https://open.spotify.com/track/5TYQonY07iJP2ULhR4ptce)** — Red Hot Chili Peppers
+> On the turntable: **[Give It Away](https://open.spotify.com/track/0uppYCG86ajpV2hSR3dJJ0)** — Red Hot Chili Peppers
 <!-- now-playing:end -->
 
 ### Selected work
