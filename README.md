@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Show Me How to Live](https://open.spotify.com/track/21tuvt3CXIsNquc32v8jpc)** — Audioslave
+> On the turntable: **[The Lost Art Of Keeping A Secret](https://open.spotify.com/track/6FlAJtf8aSZOpEj9ITSfYh)** — Queens of the Stone Age
 <!-- now-playing:end -->
 
 ### Selected work
