@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[The Greeting Song](https://open.spotify.com/track/5HYKskVhty99c7Txyydwmp)** — Red Hot Chili Peppers
+> On the turntable: **[Sir Psycho Sexy](https://open.spotify.com/track/1J5ZXurCRQdFHWfOiFt12x)** — Red Hot Chili Peppers
 <!-- now-playing:end -->
 
 ### Selected work
