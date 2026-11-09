@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Around the World](https://open.spotify.com/track/0aGQHMr7bc23Y9Ts84ffop)** — Red Hot Chili Peppers
+> On the turntable: **[Bandoliers](https://open.spotify.com/track/7iWW3SUgt8d6EQruC0NQ2B)** — Them Crooked Vultures
 <!-- now-playing:end -->
 
 ### Selected work
