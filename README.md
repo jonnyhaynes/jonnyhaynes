@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Sir Psycho Sexy](https://open.spotify.com/track/1J5ZXurCRQdFHWfOiFt12x)** — Red Hot Chili Peppers
+> On the turntable: **[Castles Made of Sand - 2006 Remaster](https://open.spotify.com/track/7mUNyl16vX2OrKqMAuZJF9)** — Red Hot Chili Peppers
 <!-- now-playing:end -->
 
 ### Selected work
