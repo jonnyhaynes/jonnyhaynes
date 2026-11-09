@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Just Like This](https://open.spotify.com/track/7on45JTbuUgroAC4DXwBqQ)** — Limp Bizkit
+> On the turntable: **[Sure Shot](https://open.spotify.com/track/21REQ1bCUWphT2QK3bLWYQ)** — Beastie Boys
 <!-- now-playing:end -->
 
 ### Selected work
