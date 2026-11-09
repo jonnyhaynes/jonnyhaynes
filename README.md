@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[The Pot](https://open.spotify.com/track/1lATXTBJDHwawvT1UfxWu3)** — TOOL
+> On the turntable: **[Black Smoke Rising](https://open.spotify.com/track/32BEasyNQgqXQJKoVa0fUw)** — Greta Van Fleet
 <!-- now-playing:end -->
 
 ### Selected work
