@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Mean Street - 2015 Remaster](https://open.spotify.com/track/1eGSgC6ZhJ8D4nrZZ83LyA)** — Van Halen
+> On the turntable: **[American Woman](https://open.spotify.com/track/3X6iIrFuQoCshIWBseEKPl)** — Lenny Kravitz
 <!-- now-playing:end -->
 
 ### Selected work
