@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Black Hole Sun](https://open.spotify.com/track/4xdHI4eFNst0vTZuuKrWjr)** — Soundgarden
+> On the turntable: **[Vicarious](https://open.spotify.com/track/65ShmiE5aLBdcIGr7tHX35)** — TOOL
 <!-- now-playing:end -->
 
 ### Selected work
