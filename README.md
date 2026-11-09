@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[When I Come Around](https://open.spotify.com/track/1Dr1fXbc2IxaK1Mu8P8Khz)** — Green Day
+> On the turntable: **[Rock and Roll - Remaster](https://open.spotify.com/track/4PRGxHpCpF2yoOHYKQIEwD)** — Led Zeppelin
 <!-- now-playing:end -->
 
 ### Selected work
