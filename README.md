@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Blue Orchid](https://open.spotify.com/track/4jU7NPkz4HVnM4hweqNhI1)** — The White Stripes
+> On the turntable: **[Show Me How to Live](https://open.spotify.com/track/21tuvt3CXIsNquc32v8jpc)** — Audioslave
 <!-- now-playing:end -->
 
 ### Selected work
