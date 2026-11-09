@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Readymade](https://open.spotify.com/track/2Y5ngAobMcspRywfmb77k5)** — Red Hot Chili Peppers
+> On the turntable: **[Bad Habit](https://open.spotify.com/track/5tFzUj1jV09bo4wBQWSbDl)** — The Offspring
 <!-- now-playing:end -->
 
 ### Selected work
