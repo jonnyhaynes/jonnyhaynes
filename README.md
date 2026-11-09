@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[American Woman](https://open.spotify.com/track/3X6iIrFuQoCshIWBseEKPl)** — Lenny Kravitz
+> On the turntable: **[Rape Me](https://open.spotify.com/track/5Rizj5FLb2AyNKu9esjYY6)** — Nirvana
 <!-- now-playing:end -->
 
 ### Selected work
