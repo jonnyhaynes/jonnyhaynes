@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> Last on the turntable: **[Otherside](https://open.spotify.com/track/64BbK9SFKH2jk86U3dGj2P)** — Red Hot Chili Peppers
+> On the turntable: **[If You Have to Ask](https://open.spotify.com/track/2R6go62CuxqqX0w1TgXxes)** — Red Hot Chili Peppers
 <!-- now-playing:end -->
 
 ### Selected work
