@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[If You Have to Ask](https://open.spotify.com/track/2R6go62CuxqqX0w1TgXxes)** — Red Hot Chili Peppers
+> On the turntable: **[Funky Monks](https://open.spotify.com/track/68uWKoPwSxYE6DVylRA1XI)** — Red Hot Chili Peppers
 <!-- now-playing:end -->
 
 ### Selected work
