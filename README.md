@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> Last on the turntable: **[Violence](https://open.spotify.com/track/6oRvk7PJW3PDKFZkEvJNkq)** — blink-182
+> On the turntable: **[Blue Orchid](https://open.spotify.com/track/4jU7NPkz4HVnM4hweqNhI1)** — The White Stripes
 <!-- now-playing:end -->
 
 ### Selected work
