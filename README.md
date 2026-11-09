@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[The Lost Art Of Keeping A Secret](https://open.spotify.com/track/6FlAJtf8aSZOpEj9ITSfYh)** — Queens of the Stone Age
+> On the turntable: **[Readymade](https://open.spotify.com/track/2Y5ngAobMcspRywfmb77k5)** — Red Hot Chili Peppers
 <!-- now-playing:end -->
 
 ### Selected work
