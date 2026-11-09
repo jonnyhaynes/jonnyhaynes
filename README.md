@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Nookie](https://open.spotify.com/track/1TEZWG1FdjzDdercCguTwj)** — Limp Bizkit
+> On the turntable: **[The Pot](https://open.spotify.com/track/1lATXTBJDHwawvT1UfxWu3)** — TOOL
 <!-- now-playing:end -->
 
 ### Selected work
