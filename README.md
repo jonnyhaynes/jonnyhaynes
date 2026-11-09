@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[New Fang](https://open.spotify.com/track/7uJLdyIAaYLGT0oLw7I6b3)** — Them Crooked Vultures
+> On the turntable: **[Black Hole Sun](https://open.spotify.com/track/4xdHI4eFNst0vTZuuKrWjr)** — Soundgarden
 <!-- now-playing:end -->
 
 ### Selected work
