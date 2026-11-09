@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Rape Me](https://open.spotify.com/track/5Rizj5FLb2AyNKu9esjYY6)** — Nirvana
+> On the turntable: **[Lateralus](https://open.spotify.com/track/7tvuLLroI0n6uYBWuFig5d)** — TOOL
 <!-- now-playing:end -->
 
 ### Selected work
