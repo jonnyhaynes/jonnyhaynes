@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[After Midnight](https://open.spotify.com/track/29bWDkf8qtCmsvDWOW55CJ)** — blink-182
+> Last on the turntable: **[Violence](https://open.spotify.com/track/6oRvk7PJW3PDKFZkEvJNkq)** — blink-182
 <!-- now-playing:end -->
 
 ### Selected work
