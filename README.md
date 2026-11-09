@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Lateralus](https://open.spotify.com/track/7tvuLLroI0n6uYBWuFig5d)** — TOOL
+> On the turntable: **[Song For The Dead](https://open.spotify.com/track/37gG4GPeTRPKKdXYx3zTRC)** — Queens of the Stone Age
 <!-- now-playing:end -->
 
 ### Selected work
