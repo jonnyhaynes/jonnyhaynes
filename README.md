@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Epic](https://open.spotify.com/track/4ReyTz0y3TGkX48wO3Llot)** — Faith No More
+> On the turntable: **[Sabotage](https://open.spotify.com/track/0Puj4YlTm6xNzDDADXHMI9)** — Beastie Boys
 <!-- now-playing:end -->
 
 ### Selected work
