@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Song For The Dead](https://open.spotify.com/track/37gG4GPeTRPKKdXYx3zTRC)** — Queens of the Stone Age
+> On the turntable: **[Your Time Has Come](https://open.spotify.com/track/1DTHuAh4zhWMc1KbfCy1iP)** — Audioslave
 <!-- now-playing:end -->
 
 ### Selected work
