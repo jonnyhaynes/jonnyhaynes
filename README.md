@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Heart Shaped Box](https://open.spotify.com/track/7g83tbChriBEh5VgTgVY3y)** — A Killer's Confession
+> On the turntable: **[Look What You Made Me Do](https://open.spotify.com/track/4lQIt7rKo9t0AN2fp5ujTh)** — SCATTERBRAIN
 <!-- now-playing:end -->
 
 ### Selected work
