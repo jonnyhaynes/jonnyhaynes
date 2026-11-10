@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Break Stuff](https://open.spotify.com/track/5cZqsjVs6MevCnAkasbEOX)** — Limp Bizkit
+> On the turntable: **[When You Were Young](https://open.spotify.com/track/70wYA8oYHoMzhRRkARoMhU)** — The Killers
 <!-- now-playing:end -->
 
 ### Selected work
