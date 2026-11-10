@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Pressure](https://open.spotify.com/track/3eSyMBd7ERw68NVB3jlRmW)** — Muse
+> On the turntable: **[Doomed](https://open.spotify.com/track/6uG3lOMamTpecbrxkihC1j)** — Maphra
 <!-- now-playing:end -->
 
 ### Selected work
