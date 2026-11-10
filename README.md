@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Every Day Is Exactly The Same](https://open.spotify.com/track/11sSvwrDX5BBUhbBZRKUxy)** — Nine Inch Nails
+> On the turntable: **[Reapers](https://open.spotify.com/track/1244xKUG27TnmQhUJlo3gU)** — Muse
 <!-- now-playing:end -->
 
 ### Selected work
