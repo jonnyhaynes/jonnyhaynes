@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Little Black Submarines - 2021 Remaster](https://open.spotify.com/track/3BR01wZsCALix7hnhZltGs)** — The Black Keys
+> Last on the turntable: **[Little Black Submarines - 2021 Remaster](https://open.spotify.com/track/3BR01wZsCALix7hnhZltGs)** — The Black Keys
 <!-- now-playing:end -->
 
 ### Selected work
