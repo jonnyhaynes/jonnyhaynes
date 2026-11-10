@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Uprising](https://open.spotify.com/track/4VqPOruhp5EdPBeR92t6lQ)** — Muse
+> On the turntable: **[Fell On Black Days](https://open.spotify.com/track/21HWc9gFZKNdkGzGqHLq3A)** — Soundgarden
 <!-- now-playing:end -->
 
 ### Selected work
