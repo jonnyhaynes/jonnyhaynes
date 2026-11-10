@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Run Right Back - 2021 Remaster](https://open.spotify.com/track/3pFW7cWwjsYN15mJzeEVRb)** — The Black Keys
+> On the turntable: **[Gunman](https://open.spotify.com/track/1hreMeBwxRRmChwRSjP1Kk)** — Them Crooked Vultures
 <!-- now-playing:end -->
 
 ### Selected work
