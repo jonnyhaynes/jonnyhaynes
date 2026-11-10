@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Summertime Sadness](https://open.spotify.com/track/7bSBrmuDIKpRm9PXT8ffat)** — Frayle
+> On the turntable: **[Heart Shaped Box](https://open.spotify.com/track/7g83tbChriBEh5VgTgVY3y)** — A Killer's Confession
 <!-- now-playing:end -->
 
 ### Selected work
