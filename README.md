@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Doomed](https://open.spotify.com/track/6uG3lOMamTpecbrxkihC1j)** — Maphra
+> On the turntable: **[Mea Culpa \(Ah! Ça ira!\)](https://open.spotify.com/track/4AFjPeecGnS3999PV5iOSK)** — Gojira, Marina Viotti, Victor Le Masne
 <!-- now-playing:end -->
 
 ### Selected work
