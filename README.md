@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[The Handler](https://open.spotify.com/track/6xq3Bd7MvZVa7pda9tC4MW)** — Muse
+> On the turntable: **[Run Right Back - 2021 Remaster](https://open.spotify.com/track/3pFW7cWwjsYN15mJzeEVRb)** — The Black Keys
 <!-- now-playing:end -->
 
 ### Selected work
