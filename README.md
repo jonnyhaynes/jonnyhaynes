@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Take A Look Around](https://open.spotify.com/track/2avKuMN2QXkaG9vvHa2JLt)** — Limp Bizkit
+> On the turntable: **[Today - 2011 Remaster](https://open.spotify.com/track/0u5aO1GYsIhAWCPuXdwnak)** — The Smashing Pumpkins
 <!-- now-playing:end -->
 
 ### Selected work
