@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Misery Business](https://open.spotify.com/track/3l9CW99AHtExIRV4hW2N5m)** — Paramore
+> On the turntable: **[Butterflies & Hurricanes](https://open.spotify.com/track/5XpJOQgVEuM1FzgeGXzUvk)** — Muse
 <!-- now-playing:end -->
 
 ### Selected work
