@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Dead Inside](https://open.spotify.com/track/2daZovie6pc2ZK7StayD1K)** — Muse
+> On the turntable: **[Lydia](https://open.spotify.com/track/7yoBjKO6cCnK3zV8gr1k4e)** — Highly Suspect
 <!-- now-playing:end -->
 
 ### Selected work
