@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Personal Jesus](https://open.spotify.com/track/6SyutgkQfLKfcsWvmh02k2)** — Marilyn Manson
+> On the turntable: **[Land of Confusion](https://open.spotify.com/track/4ClGNWLK9vZMBtO0CpnyOE)** — Disturbed
 <!-- now-playing:end -->
 
 ### Selected work
