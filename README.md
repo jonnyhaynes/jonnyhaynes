@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Live to Rise](https://open.spotify.com/track/0zjTLZdBM5jHXsqP3uJ8sq)** — Soundgarden
+> On the turntable: **[Assassin](https://open.spotify.com/track/6JnFVmPyJvjnfBag0hhIFa)** — Muse
 <!-- now-playing:end -->
 
 ### Selected work
