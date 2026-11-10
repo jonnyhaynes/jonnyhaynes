@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Schism](https://open.spotify.com/track/55mJleti2WfWEFNFcBduhc)** — TOOL
+> On the turntable: **[Pressure](https://open.spotify.com/track/3eSyMBd7ERw68NVB3jlRmW)** — Muse
 <!-- now-playing:end -->
 
 ### Selected work
