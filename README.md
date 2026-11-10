@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[You Know My Name - From "Casino Royale" Soundtrack](https://open.spotify.com/track/4MR9iW77LJoPPDjwAYbIZZ)** — Chris Cornell
+> On the turntable: **[Uprising](https://open.spotify.com/track/4VqPOruhp5EdPBeR92t6lQ)** — Muse
 <!-- now-playing:end -->
 
 ### Selected work
