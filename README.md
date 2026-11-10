@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Panic Station](https://open.spotify.com/track/1tjHKKI0r82IB5KL29whHs)** — Muse
+> On the turntable: **[Running In Circles](https://open.spotify.com/track/4pEU0NT64oiem9lDT7nuJn)** — Dead Poet Society
 <!-- now-playing:end -->
 
 ### Selected work
