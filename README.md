@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Freak On a Leash](https://open.spotify.com/track/6W21LNLz9Sw7sUSNWMSHRu)** — Korn
+> On the turntable: **[Bullet In The Head](https://open.spotify.com/track/1WWgMk8nD79p8VeKFGYrOw)** — Rage Against The Machine
 <!-- now-playing:end -->
 
 ### Selected work
