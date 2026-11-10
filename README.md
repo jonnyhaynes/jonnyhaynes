@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Fell On Black Days](https://open.spotify.com/track/21HWc9gFZKNdkGzGqHLq3A)** — Soundgarden
+> On the turntable: **[Knights of Cydonia](https://open.spotify.com/track/7ouMYWpwJ422jRcDASZB7P)** — Muse
 <!-- now-playing:end -->
 
 ### Selected work
