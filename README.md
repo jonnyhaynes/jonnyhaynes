@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Zombie](https://open.spotify.com/track/5d8Wq39QLT6OQWsY9paz5n)** — Bad Wolves
+> On the turntable: **[Personal Jesus](https://open.spotify.com/track/6SyutgkQfLKfcsWvmh02k2)** — Marilyn Manson
 <!-- now-playing:end -->
 
 ### Selected work
