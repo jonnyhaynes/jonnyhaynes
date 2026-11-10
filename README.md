@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Look What You Made Me Do](https://open.spotify.com/track/4lQIt7rKo9t0AN2fp5ujTh)** — SCATTERBRAIN
+> On the turntable: **[Turn The Page](https://open.spotify.com/track/1aXFBWnnPFRKUN7vuIA5h0)** — Metallica
 <!-- now-playing:end -->
 
 ### Selected work
