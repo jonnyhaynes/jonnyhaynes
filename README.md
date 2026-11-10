@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Tick Tick Boom](https://open.spotify.com/track/7xl2ZaOnKAxJyrkIQe2S43)** — The Hives
+> On the turntable: **[Dance Macabre](https://open.spotify.com/track/4pIKFpwflOdhYNIRmPTj3E)** — Ghost
 <!-- now-playing:end -->
 
 ### Selected work
