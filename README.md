@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[When You Were Young](https://open.spotify.com/track/70wYA8oYHoMzhRRkARoMhU)** — The Killers
+> On the turntable: **[Tick Tick Boom](https://open.spotify.com/track/7xl2ZaOnKAxJyrkIQe2S43)** — The Hives
 <!-- now-playing:end -->
 
 ### Selected work
