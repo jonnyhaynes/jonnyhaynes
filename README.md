@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Butterflies & Hurricanes](https://open.spotify.com/track/5XpJOQgVEuM1FzgeGXzUvk)** — Muse
+> On the turntable: **[Take A Look Around](https://open.spotify.com/track/2avKuMN2QXkaG9vvHa2JLt)** — Limp Bizkit
 <!-- now-playing:end -->
 
 ### Selected work
