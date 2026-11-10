@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[House of The Rising Sun](https://open.spotify.com/track/4ZmX8elKMkH0MfniNi0Adu)** — Five Finger Death Punch
+> Last on the turntable: **[Jesus He Knows Me](https://open.spotify.com/track/1zd8h6ho3mlbhkZnADHVzP)** — Ghost
 <!-- now-playing:end -->
 
 ### Selected work
