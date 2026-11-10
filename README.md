@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Knights of Cydonia](https://open.spotify.com/track/7ouMYWpwJ422jRcDASZB7P)** — Muse
+> On the turntable: **[1979 - Remastered 2012](https://open.spotify.com/track/5QLHGv0DfpeXLNFo7SFEy1)** — The Smashing Pumpkins
 <!-- now-playing:end -->
 
 ### Selected work
