@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Lydia](https://open.spotify.com/track/7yoBjKO6cCnK3zV8gr1k4e)** — Highly Suspect
+> On the turntable: **[Schism](https://open.spotify.com/track/55mJleti2WfWEFNFcBduhc)** — TOOL
 <!-- now-playing:end -->
 
 ### Selected work
