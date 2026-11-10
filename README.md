@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Assassin](https://open.spotify.com/track/6JnFVmPyJvjnfBag0hhIFa)** — Muse
+> On the turntable: **[Freak On a Leash](https://open.spotify.com/track/6W21LNLz9Sw7sUSNWMSHRu)** — Korn
 <!-- now-playing:end -->
 
 ### Selected work
