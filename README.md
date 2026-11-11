@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Blank Space](https://open.spotify.com/track/2ZiJidFdQ30nVJEP4u44l3)** — I Prevail
+> On the turntable: **[Enjoy the Silence - cover version](https://open.spotify.com/track/71KtwiEpzcn9WxwlaS7ZJY)** — Lacuna Coil
 <!-- now-playing:end -->
 
 ### Selected work
