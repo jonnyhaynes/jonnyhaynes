@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Parado](https://open.spotify.com/track/0qzUdO8s34Jaz1xE6EDZYb)** — The Heavy Eyes
+> On the turntable: **[Vat 69](https://open.spotify.com/track/2dhyk1jM7EOxeCva7HrEp8)** — Greenleaf
 <!-- now-playing:end -->
 
 ### Selected work
