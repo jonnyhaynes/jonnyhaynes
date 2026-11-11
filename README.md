@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Madness](https://open.spotify.com/track/0c4IEciLCDdXEhhKxj4ThA)** — Muse
+> On the turntable: **[Hush](https://open.spotify.com/track/0OcCTvv3tpZBSZxP889Ijs)** — Muse, Ellie Goulding
 <!-- now-playing:end -->
 
 ### Selected work
