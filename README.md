@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Third Man On The Moon](https://open.spotify.com/track/762LxB2wGb2T9c20I3eGQc)** — Masters Of Reality
+> On the turntable: **[Senor Moreno's Plan](https://open.spotify.com/track/7CrSE1wHY5SfEQHPt6t8HD)** — Hermano
 <!-- now-playing:end -->
 
 ### Selected work
