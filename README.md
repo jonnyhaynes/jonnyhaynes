@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Undisclosed Desires](https://open.spotify.com/track/0It6VJoMAare1zdV2wxqZq)** — Muse
+> Last on the turntable: **[Stockholm Syndrome](https://open.spotify.com/track/3ox5lIXRf4r977FsE7JfXs)** — Muse
 <!-- now-playing:end -->
 
 ### Selected work
