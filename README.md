@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[The Dark Forest](https://open.spotify.com/track/1JIffDQIhTeOeqYW66uu9e)** — Muse
+> Last on the turntable: **[The Dark Forest](https://open.spotify.com/track/1JIffDQIhTeOeqYW66uu9e)** — Muse
 <!-- now-playing:end -->
 
 ### Selected work
