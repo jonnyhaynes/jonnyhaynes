@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Djinn and Pentatonic](https://open.spotify.com/track/5tukvl5TmmcmnHdTJrBYZz)** — The Company Band
+> On the turntable: **[Hearts Aflame](https://open.spotify.com/track/6FAYqp5MXvNBmnHf0oZWaK)** — Valley of the Sun
 <!-- now-playing:end -->
 
 ### Selected work
