@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Vidage - Remastered](https://open.spotify.com/track/0b1Do0DGj70oWPTK5pJP8c)** — 1000mods
+> On the turntable: **[One Hand On the Buffalo](https://open.spotify.com/track/3a2LaHyp9JhvYz43tJzkz0)** — The Heavy Eyes
 <!-- now-playing:end -->
 
 ### Selected work
