@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Desert Cruiser](https://open.spotify.com/track/6nKalL6gHTHFjcFk0WK6Ip)** — Truckfighters
+> On the turntable: **[Electric Man](https://open.spotify.com/track/2F9mIXMaxSqqVxl5g6McsQ)** — Rival Sons
 <!-- now-playing:end -->
 
 ### Selected work
