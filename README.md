@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[The Handler](https://open.spotify.com/track/6xq3Bd7MvZVa7pda9tC4MW)** — Muse
+> Last on the turntable: **[The Handler](https://open.spotify.com/track/6xq3Bd7MvZVa7pda9tC4MW)** — Muse
 <!-- now-playing:end -->
 
 ### Selected work
