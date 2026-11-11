@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Supa Scoopa and Mighty Scoop](https://open.spotify.com/track/74PX4Sa0tXJDStditawG0O)** — Kyuss
+> On the turntable: **[She Got Me \(When She Got Her Dress On\)](https://open.spotify.com/track/3TkxGrRI4nwggeuEU5pFmp)** — Masters Of Reality
 <!-- now-playing:end -->
 
 ### Selected work
