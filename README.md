@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[These Men Are Wolves](https://open.spotify.com/track/08DZuxXC80ROlob6maOCdn)** — The Heavy Eyes
+> On the turntable: **[One Inch Man](https://open.spotify.com/track/1WPAQR4AGJq9LmZOI6KEax)** — Kyuss
 <!-- now-playing:end -->
 
 ### Selected work
