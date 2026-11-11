@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Revolve](https://open.spotify.com/track/09hctAvAEUpm7MKl1RBK2j)** — Melvins
+> On the turntable: **[Thumb](https://open.spotify.com/track/4G9nfjycMbM4beqEheM145)** — Kyuss
 <!-- now-playing:end -->
 
 ### Selected work
