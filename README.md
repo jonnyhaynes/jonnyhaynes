@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Cloak Of Feathers](https://open.spotify.com/track/2xMc8T9HiRQsOwWOe5IZG3)** — The Sword
+> On the turntable: **[You Gonna Wreck My Life \(Live in Australia\) \[feat. Eric Oblander\]](https://open.spotify.com/track/5ObfUQwH4lZYXvFlrD5MSE)** — Jean-Paul Gaster, Tim Sult, Neil Fallon, Dan Maines, Eric Oblander
 <!-- now-playing:end -->
 
 ### Selected work
