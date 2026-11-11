@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Hysteria](https://open.spotify.com/track/0knbMPVHpFbsx38pLoYSRs)** — Muse
+> On the turntable: **[Madness](https://open.spotify.com/track/0c4IEciLCDdXEhhKxj4ThA)** — Muse
 <!-- now-playing:end -->
 
 ### Selected work
