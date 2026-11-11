@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> Last on the turntable: **[Jesus He Knows Me](https://open.spotify.com/track/1zd8h6ho3mlbhkZnADHVzP)** — Ghost
+> On the turntable: **[Awaken](https://open.spotify.com/track/5HZS0Vq4lzPyXR3s1qfjvg)** — Youth Never Dies, Our Mirage, Onlap
 <!-- now-playing:end -->
 
 ### Selected work
