@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Awaken](https://open.spotify.com/track/5HZS0Vq4lzPyXR3s1qfjvg)** — Youth Never Dies, Our Mirage, Onlap
+> On the turntable: **[Blank Space](https://open.spotify.com/track/2ZiJidFdQ30nVJEP4u44l3)** — I Prevail
 <!-- now-playing:end -->
 
 ### Selected work
