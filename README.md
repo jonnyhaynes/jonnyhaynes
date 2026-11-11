@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[The Drifter Returns](https://open.spotify.com/track/10nKLyaYzJ1UinrJhzQwg8)** — Clutch
+> On the turntable: **[Sunburn](https://open.spotify.com/track/5wq8wceQvaFlOZovDtfr0j)** — Muse
 <!-- now-playing:end -->
 
 ### Selected work
