@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[One Hand On the Buffalo](https://open.spotify.com/track/3a2LaHyp9JhvYz43tJzkz0)** — The Heavy Eyes
+> On the turntable: **[Hell On Wheels](https://open.spotify.com/track/2WJkOjyoA8OZnIljqO99lK)** — Fu Manchu
 <!-- now-playing:end -->
 
 ### Selected work
