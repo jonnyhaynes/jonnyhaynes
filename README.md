@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Eatin' Dust](https://open.spotify.com/track/2eHruBEy06Vt7VswO4ROhC)** — Fu Manchu
+> On the turntable: **[Hot Topic Woman](https://open.spotify.com/track/3GpRnlEUBJhbWH10QkiCIn)** — The Company Band
 <!-- now-playing:end -->
 
 ### Selected work
