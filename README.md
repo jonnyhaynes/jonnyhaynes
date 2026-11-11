@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Cars - Remix](https://open.spotify.com/track/5gp7nuCjOwI79WfO65di78)** — Fear Factory
+> On the turntable: **[Eatin' Dust](https://open.spotify.com/track/2eHruBEy06Vt7VswO4ROhC)** — Fu Manchu
 <!-- now-playing:end -->
 
 ### Selected work
