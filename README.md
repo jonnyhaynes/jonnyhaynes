@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Heavy/Like a Witch](https://open.spotify.com/track/3N02rdKYcUq6nabDpCRv7v)** — All Them Witches
+> On the turntable: **[Third Man On The Moon](https://open.spotify.com/track/762LxB2wGb2T9c20I3eGQc)** — Masters Of Reality
 <!-- now-playing:end -->
 
 ### Selected work
