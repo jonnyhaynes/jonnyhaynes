@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> Last on the turntable: **[Stockholm Syndrome](https://open.spotify.com/track/3ox5lIXRf4r977FsE7JfXs)** — Muse
+> On the turntable: **[The Drifter Returns](https://open.spotify.com/track/10nKLyaYzJ1UinrJhzQwg8)** — Clutch
 <!-- now-playing:end -->
 
 ### Selected work
