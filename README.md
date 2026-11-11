@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Electric Man](https://open.spotify.com/track/2F9mIXMaxSqqVxl5g6McsQ)** — Rival Sons
+> On the turntable: **[Supa Scoopa and Mighty Scoop](https://open.spotify.com/track/74PX4Sa0tXJDStditawG0O)** — Kyuss
 <!-- now-playing:end -->
 
 ### Selected work
