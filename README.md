@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[One Inch Man](https://open.spotify.com/track/1WPAQR4AGJq9LmZOI6KEax)** — Kyuss
+> On the turntable: **[Heavy/Like a Witch](https://open.spotify.com/track/3N02rdKYcUq6nabDpCRv7v)** — All Them Witches
 <!-- now-playing:end -->
 
 ### Selected work
