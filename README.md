@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Thumb](https://open.spotify.com/track/4G9nfjycMbM4beqEheM145)** — Kyuss
+> On the turntable: **[Sucker for the Witch](https://open.spotify.com/track/0pzgjslKXrympdDbHVCqvb)** — Clutch
 <!-- now-playing:end -->
 
 ### Selected work
