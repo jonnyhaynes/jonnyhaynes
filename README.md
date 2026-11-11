@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Sucker for the Witch](https://open.spotify.com/track/0pzgjslKXrympdDbHVCqvb)** — Clutch
+> On the turntable: **[Cloak Of Feathers](https://open.spotify.com/track/2xMc8T9HiRQsOwWOe5IZG3)** — The Sword
 <!-- now-playing:end -->
 
 ### Selected work
