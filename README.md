@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Supermassive Black Hole](https://open.spotify.com/track/3lPr8ghNDBLc2uZovNyLs9)** — Muse
+> On the turntable: **[Hysteria](https://open.spotify.com/track/0knbMPVHpFbsx38pLoYSRs)** — Muse
 <!-- now-playing:end -->
 
 ### Selected work
