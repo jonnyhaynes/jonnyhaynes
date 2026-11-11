@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Hell On Wheels](https://open.spotify.com/track/2WJkOjyoA8OZnIljqO99lK)** — Fu Manchu
+> On the turntable: **[Zombie Barricades](https://open.spotify.com/track/31veHFVjPZNkP9f3qM2HYn)** — The Company Band
 <!-- now-playing:end -->
 
 ### Selected work
