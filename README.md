@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Enjoy the Silence - cover version](https://open.spotify.com/track/71KtwiEpzcn9WxwlaS7ZJY)** — Lacuna Coil
+> On the turntable: **[Bad Romance](https://open.spotify.com/track/0n3sHHfdOq6Awix3JPe3xl)** — Halestorm
 <!-- now-playing:end -->
 
 ### Selected work
