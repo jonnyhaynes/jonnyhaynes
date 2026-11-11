@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Senor Moreno's Plan](https://open.spotify.com/track/7CrSE1wHY5SfEQHPt6t8HD)** — Hermano
+> On the turntable: **[Vidage - Remastered](https://open.spotify.com/track/0b1Do0DGj70oWPTK5pJP8c)** — 1000mods
 <!-- now-playing:end -->
 
 ### Selected work
