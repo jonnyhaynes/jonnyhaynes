@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Vat 69](https://open.spotify.com/track/2dhyk1jM7EOxeCva7HrEp8)** — Greenleaf
+> On the turntable: **[I Am the Warlock \(feat. Jack Black\)](https://open.spotify.com/track/3n3FKYskxltScdqTn6CJem)** — Probot, Jack Black
 <!-- now-playing:end -->
 
 ### Selected work
