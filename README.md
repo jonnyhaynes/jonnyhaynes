@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Gardenia](https://open.spotify.com/track/18EkFrYFOGyFK52iiWY8No)** — Kyuss
+> On the turntable: **[Godzilla](https://open.spotify.com/track/3NORT1j8JodIq57UaCJYfs)** — Fu Manchu
 <!-- now-playing:end -->
 
 ### Selected work
