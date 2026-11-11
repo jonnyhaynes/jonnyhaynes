@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Hot Topic Woman](https://open.spotify.com/track/3GpRnlEUBJhbWH10QkiCIn)** — The Company Band
+> On the turntable: **[Desert Cruiser](https://open.spotify.com/track/6nKalL6gHTHFjcFk0WK6Ip)** — Truckfighters
 <!-- now-playing:end -->
 
 ### Selected work
