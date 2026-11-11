@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Zombie Barricades](https://open.spotify.com/track/31veHFVjPZNkP9f3qM2HYn)** — The Company Band
+> On the turntable: **[Love Means Never Having To Say You're Ugly](https://open.spotify.com/track/41vFuPIozk3uDLYV2kMLhD)** — The Company Band
 <!-- now-playing:end -->
 
 ### Selected work
