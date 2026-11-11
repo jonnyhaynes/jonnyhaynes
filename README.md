@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Love Means Never Having To Say You're Ugly](https://open.spotify.com/track/41vFuPIozk3uDLYV2kMLhD)** — The Company Band
+> On the turntable: **[Gardenia](https://open.spotify.com/track/18EkFrYFOGyFK52iiWY8No)** — Kyuss
 <!-- now-playing:end -->
 
 ### Selected work
