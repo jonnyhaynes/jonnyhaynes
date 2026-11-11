@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Godzilla](https://open.spotify.com/track/3NORT1j8JodIq57UaCJYfs)** — Fu Manchu
+> On the turntable: **[Parado](https://open.spotify.com/track/0qzUdO8s34Jaz1xE6EDZYb)** — The Heavy Eyes
 <!-- now-playing:end -->
 
 ### Selected work
