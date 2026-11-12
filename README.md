@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> Last on the turntable: **[Lights Out](https://open.spotify.com/track/1060gzllf4b0UETAXisR5l)** — Royal Blood
+> On the turntable: **[Schwarz](https://open.spotify.com/track/2UK4qw712yzFh8vYYJGv2B)** — Rammstein
 <!-- now-playing:end -->
 
 ### Selected work
