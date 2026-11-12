@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Sunburn](https://open.spotify.com/track/5wq8wceQvaFlOZovDtfr0j)** — Muse
+> On the turntable: **[Dig Down](https://open.spotify.com/track/0RILico3Gbl5jxSNg3zLrJ)** — Muse
 <!-- now-playing:end -->
 
 ### Selected work
