@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Schwarz](https://open.spotify.com/track/2UK4qw712yzFh8vYYJGv2B)** — Rammstein
+> On the turntable: **[Dicke Titten](https://open.spotify.com/track/5KTBaWu8IOczQ0sPWzZ7MY)** — Rammstein
 <!-- now-playing:end -->
 
 ### Selected work
