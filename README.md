@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Sunday](https://open.spotify.com/track/2vfjg1ElyT5SNZDF6Up2X3)** — Queens of the Stone Age
+> On the turntable: **[Forty Six & 2](https://open.spotify.com/track/6AioOohg4bQZFA4jIYQQ2r)** — TOOL
 <!-- now-playing:end -->
 
 ### Selected work
