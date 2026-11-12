@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Nightshift Superstar](https://open.spotify.com/track/51ukPU68k4Zl0cLdNGXaHn)** — Muse
+> On the turntable: **[Hexagons](https://open.spotify.com/track/2ssHVnC8IEkQouNXfPDfAe)** — Muse
 <!-- now-playing:end -->
 
 ### Selected work
