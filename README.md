@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> Last on the turntable: **[Unnatural Selection](https://open.spotify.com/track/28FJMlLUu9NHuwlZWFKDn7)** — Muse
+> On the turntable: **[Shimmering Scars](https://open.spotify.com/track/7bRLb9t0fR0xBJvtnuhwpw)** — Muse
 <!-- now-playing:end -->
 
 ### Selected work
