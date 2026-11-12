@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Shimmering Scars](https://open.spotify.com/track/7bRLb9t0fR0xBJvtnuhwpw)** — Muse
+> On the turntable: **[Hysteria](https://open.spotify.com/track/0knbMPVHpFbsx38pLoYSRs)** — Muse
 <!-- now-playing:end -->
 
 ### Selected work
