@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Unnatural Selection](https://open.spotify.com/track/28FJMlLUu9NHuwlZWFKDn7)** — Muse
+> On the turntable: **[Map of the Problematique](https://open.spotify.com/track/5YXr4AGfUQpLSxtFSsKUh6)** — Muse
 <!-- now-playing:end -->
 
 ### Selected work
