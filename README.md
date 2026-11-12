@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Plush](https://open.spotify.com/track/3jJZVeExYzVYiV6Y9Fl3DX)** — Stone Temple Pilots
+> On the turntable: **[Sunday](https://open.spotify.com/track/2vfjg1ElyT5SNZDF6Up2X3)** — Queens of the Stone Age
 <!-- now-playing:end -->
 
 ### Selected work
