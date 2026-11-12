@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Space Dementia](https://open.spotify.com/track/00jXDm9BLNZdf2QC3Br0r7)** — Muse
+> On the turntable: **[Sing for Absolution](https://open.spotify.com/track/6Dct63YMBXtjGqCwr0HkYb)** — Muse
 <!-- now-playing:end -->
 
 ### Selected work
