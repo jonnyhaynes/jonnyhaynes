@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Uprising](https://open.spotify.com/track/4VqPOruhp5EdPBeR92t6lQ)** — Muse
+> On the turntable: **[New Born](https://open.spotify.com/track/2VrJMuLt2m9HbifGrKWHqk)** — Muse
 <!-- now-playing:end -->
 
 ### Selected work
