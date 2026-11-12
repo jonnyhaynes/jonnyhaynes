@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Warsaw or the First Breath You Take After You Give Up](https://open.spotify.com/track/1nevHoCWi4U6sx7c5zt1Wu)** — Them Crooked Vultures
+> On the turntable: **[Aerials](https://open.spotify.com/track/4e9eGQYsOiBcftrWXwsVco)** — System Of A Down
 <!-- now-playing:end -->
 
 ### Selected work
