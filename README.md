@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Verona](https://open.spotify.com/track/35E8of4u0B5PI8o4Hy0tWq)** — Muse
+> On the turntable: **[Space Dementia](https://open.spotify.com/track/00jXDm9BLNZdf2QC3Br0r7)** — Muse
 <!-- now-playing:end -->
 
 ### Selected work
