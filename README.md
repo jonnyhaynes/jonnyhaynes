@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Cryogen](https://open.spotify.com/track/7vZ9v4c0ft0ro30awMw32V)** — Muse
+> On the turntable: **[Resistance](https://open.spotify.com/track/1C2QJNTmsTxCDBuIgai8QV)** — Muse
 <!-- now-playing:end -->
 
 ### Selected work
