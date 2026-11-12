@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Aerials](https://open.spotify.com/track/4e9eGQYsOiBcftrWXwsVco)** — System Of A Down
+> On the turntable: **[Plush](https://open.spotify.com/track/3jJZVeExYzVYiV6Y9Fl3DX)** — Stone Temple Pilots
 <!-- now-playing:end -->
 
 ### Selected work
