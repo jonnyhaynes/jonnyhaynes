@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Sing for Absolution](https://open.spotify.com/track/6Dct63YMBXtjGqCwr0HkYb)** — Muse
+> On the turntable: **[Thought Contagion](https://open.spotify.com/track/57lCa95tmjJ8EYdNTex8Kk)** — Muse
 <!-- now-playing:end -->
 
 ### Selected work
