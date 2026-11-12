@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Psycho](https://open.spotify.com/track/383QXk8nb2YrARMUwDdjQS)** — Muse
+> On the turntable: **[Supremacy](https://open.spotify.com/track/40pPI2TbaYSZlKfV44HRjn)** — Muse
 <!-- now-playing:end -->
 
 ### Selected work
