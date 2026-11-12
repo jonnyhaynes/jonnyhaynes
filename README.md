@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Forty Six & 2](https://open.spotify.com/track/6AioOohg4bQZFA4jIYQQ2r)** — TOOL
+> Last on the turntable: **[Lights Out](https://open.spotify.com/track/1060gzllf4b0UETAXisR5l)** — Royal Blood
 <!-- now-playing:end -->
 
 ### Selected work
