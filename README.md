@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Svo Hljótt](https://open.spotify.com/track/7ec7fINfDtu76PILAsKKzp)** — Sigur Rós
+> On the turntable: **[Untitled \#3 - Samskeyti](https://open.spotify.com/track/1QUiA9aecDOOnf32A9ZrtW)** — Sigur Rós
 <!-- now-playing:end -->
 
 ### Selected work
