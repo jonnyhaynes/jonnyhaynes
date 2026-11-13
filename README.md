@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Esp](https://open.spotify.com/track/5rEZdRgnZfoWFHt0fXAbhn)** — Lewis Floyd Henry
+> Last on the turntable: **[Esp](https://open.spotify.com/track/5rEZdRgnZfoWFHt0fXAbhn)** — Lewis Floyd Henry
 <!-- now-playing:end -->
 
 ### Selected work
