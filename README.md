@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[First Breath After Coma](https://open.spotify.com/track/6NJRQeKsUeXBwhRt7J3hRu)** — Explosions In The Sky
+> On the turntable: **[Olsen olsen](https://open.spotify.com/track/0S9w3jx4cO9rSBcGwB16in)** — Sigur Rós
 <!-- now-playing:end -->
 
 ### Selected work
