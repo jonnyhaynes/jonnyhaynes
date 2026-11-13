@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> Last on the turntable: **[Esp](https://open.spotify.com/track/5rEZdRgnZfoWFHt0fXAbhn)** — Lewis Floyd Henry
+> Last on the turntable: **[Beware the Fever](https://open.spotify.com/track/40jKku6bdKiOG0w7OPCQk5)** — Clutch
 <!-- now-playing:end -->
 
 ### Selected work
