@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[So Long, Lonesome](https://open.spotify.com/track/01etzQv4bFBeE6E99a6xvc)** — Explosions In The Sky
+> On the turntable: **[Starálfur](https://open.spotify.com/track/55gISxV37mffOW2DbSskT3)** — Sigur Rós
 <!-- now-playing:end -->
 
 ### Selected work
