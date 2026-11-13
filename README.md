@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[K/Half Noise](https://open.spotify.com/track/3udP7porfXw0352roQEEwS)** — múm
+> On the turntable: **[Steep Hills of Vicodin Tears](https://open.spotify.com/track/0w63OgyF5w5TByQRLySBBs)** — A Winged Victory for the Sullen, Adam Wiltzie, Dustin O'Halloran
 <!-- now-playing:end -->
 
 ### Selected work
