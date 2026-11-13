@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Heavy Love](https://open.spotify.com/track/1bUQq8vxW66c6iAPyYhiZZ)** — David Wimbish & The Collection
+> On the turntable: **[Survive \(Arena Mix \| KÁRYYN Rework\)](https://open.spotify.com/track/6nU8cAq65AWBTtNwcp18m5)** — Depeche Mode, KÁRYYN, The Hunger Games
 <!-- now-playing:end -->
 
 ### Selected work
