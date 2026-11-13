@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Takk...](https://open.spotify.com/track/44SQOW2hynczktADLNPeuH)** — Sigur Rós
+> On the turntable: **[Hoppípolla](https://open.spotify.com/track/6eTGxxQxiTFE6LfZHC33Wm)** — Sigur Rós
 <!-- now-playing:end -->
 
 ### Selected work
