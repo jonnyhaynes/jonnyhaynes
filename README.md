@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> Last on the turntable: **[Beware the Fever](https://open.spotify.com/track/40jKku6bdKiOG0w7OPCQk5)** — Clutch
+> On the turntable: **[Takk...](https://open.spotify.com/track/44SQOW2hynczktADLNPeuH)** — Sigur Rós
 <!-- now-playing:end -->
 
 ### Selected work
