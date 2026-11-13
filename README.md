@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[We Have A Map Of The Piano](https://open.spotify.com/track/5NFZLpFoP4fVWjmc007A5k)** — múm
+> On the turntable: **[Rugla](https://open.spotify.com/track/4IlDk2WqvB9IODyLA1TwV9)** — amiina
 <!-- now-playing:end -->
 
 ### Selected work
