@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[We Played Some Open Chords and Rejoiced, for the Earth had Circled the Sun Yet Another Year](https://open.spotify.com/track/63PZ1VCsTNN23Q2rlZRW89)** — A Winged Victory for the Sullen, Adam Wiltzie, Dustin O'Halloran
+> On the turntable: **[Sexfaldur](https://open.spotify.com/track/6EcnZJ1dF5cKXeucUnVuJb)** — amiina
 <!-- now-playing:end -->
 
 ### Selected work
