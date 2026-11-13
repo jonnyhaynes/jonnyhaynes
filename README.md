@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Halving The Compass](https://open.spotify.com/track/5mMUuX13MGlf04RF8zsdLx)** — Helios
+> On the turntable: **[Your Hand in Mine](https://open.spotify.com/track/4mZofk9oND0AA4sJfzTH0R)** — Explosions In The Sky
 <!-- now-playing:end -->
 
 ### Selected work
