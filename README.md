@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Survive \(Arena Mix \| KÁRYYN Rework\)](https://open.spotify.com/track/6nU8cAq65AWBTtNwcp18m5)** — Depeche Mode, KÁRYYN, The Hunger Games
+> On the turntable: **[Christmas Only Comes Once A Year](https://open.spotify.com/track/4frpPhpaOe6FqW7nkdArIK)** — Joe Bonamassa
 <!-- now-playing:end -->
 
 ### Selected work
