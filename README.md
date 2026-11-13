@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Ash / Black Veil](https://open.spotify.com/track/3e5VGip7IEv578vssvXypt)** — Apparat
+> On the turntable: **[First Breath After Coma](https://open.spotify.com/track/6NJRQeKsUeXBwhRt7J3hRu)** — Explosions In The Sky
 <!-- now-playing:end -->
 
 ### Selected work
