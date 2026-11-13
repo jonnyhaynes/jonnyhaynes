@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Torn \(feat. Dolly Parton\)](https://open.spotify.com/track/22zYIBPFc8dZj6oewNSfRF)** — U2, Dolly Parton
+> On the turntable: **[Heavy Love](https://open.spotify.com/track/1bUQq8vxW66c6iAPyYhiZZ)** — David Wimbish & The Collection
 <!-- now-playing:end -->
 
 ### Selected work
