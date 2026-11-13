@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> Last on the turntable: **[Deutschland](https://open.spotify.com/track/2bPGTMB5sFfFYQ2YvSmup0)** — Rammstein
+> On the turntable: **[ACES](https://open.spotify.com/track/2sCwIkIPsvrZXbHNQWkvo8)** — Fall Out Boy
 <!-- now-playing:end -->
 
 ### Selected work
