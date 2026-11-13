@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Andvari](https://open.spotify.com/track/0EdCt9PpsDneh4LeNIy5vp)** — Sigur Rós
+> On the turntable: **[Svo Hljótt](https://open.spotify.com/track/7ec7fINfDtu76PILAsKKzp)** — Sigur Rós
 <!-- now-playing:end -->
 
 ### Selected work
