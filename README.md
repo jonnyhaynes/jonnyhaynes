@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Phantom Limb](https://open.spotify.com/track/2OFDZZXVXhNWhk1nCvOgIb)** — Queens of the Stone Age
+> On the turntable: **[Funk Drunk \(Warehouse Mix\)](https://open.spotify.com/track/6Z5LyyG7KXGwx8P4wOpAWv)** — Felix Da Housecat, Fatboy Slim, Carola, The Cube Guys, 7KY
 <!-- now-playing:end -->
 
 ### Selected work
