@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Ashes in the Snow - Remastered](https://open.spotify.com/track/6ieH021IWLGOGifX0FUzsM)** — MONO
+> On the turntable: **[Hungry Face](https://open.spotify.com/track/2hDCvEvzsi7BHPvoJZhW69)** — Mogwai
 <!-- now-playing:end -->
 
 ### Selected work
