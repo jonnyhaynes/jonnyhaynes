@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Your Hand in Mine](https://open.spotify.com/track/4mZofk9oND0AA4sJfzTH0R)** — Explosions In The Sky
+> Last on the turntable: **[Another Day \(Revised\)](https://open.spotify.com/track/0VkskxmBFPFSevPNOg9HgX)** — The Album Leaf
 <!-- now-playing:end -->
 
 ### Selected work
