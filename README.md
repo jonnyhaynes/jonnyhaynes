@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Christmas Only Comes Once A Year](https://open.spotify.com/track/4frpPhpaOe6FqW7nkdArIK)** — Joe Bonamassa
+> On the turntable: **[Phantom Limb](https://open.spotify.com/track/2OFDZZXVXhNWhk1nCvOgIb)** — Queens of the Stone Age
 <!-- now-playing:end -->
 
 ### Selected work
