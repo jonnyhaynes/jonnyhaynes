@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Hungry Face](https://open.spotify.com/track/2hDCvEvzsi7BHPvoJZhW69)** — Mogwai
+> On the turntable: **[Halving The Compass](https://open.spotify.com/track/5mMUuX13MGlf04RF8zsdLx)** — Helios
 <!-- now-playing:end -->
 
 ### Selected work
