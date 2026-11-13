@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Said and Done](https://open.spotify.com/track/2X4Cj5zIdnav7767iPiDou)** — Nils Frahm
+> On the turntable: **[Ash / Black Veil](https://open.spotify.com/track/3e5VGip7IEv578vssvXypt)** — Apparat
 <!-- now-playing:end -->
 
 ### Selected work
