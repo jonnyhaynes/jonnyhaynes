@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Decisions Become Destinies](https://open.spotify.com/track/18eu0nIamuIGBdDSMz7kbB)** — Hatebreed
+> On the turntable: **[don't be fooled](https://open.spotify.com/track/6U2dmcIOpqRHPIW2UeqXb3)** — thrown
 <!-- now-playing:end -->
 
 ### Selected work
