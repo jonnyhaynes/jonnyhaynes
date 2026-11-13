@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Sæglópur](https://open.spotify.com/track/2KvIO4ew1TGnz1VfTJk49g)** — Sigur Rós
+> On the turntable: **[Mílanó](https://open.spotify.com/track/6pTFphd3yM7YDTSWXYT5yl)** — Sigur Rós
 <!-- now-playing:end -->
 
 ### Selected work
