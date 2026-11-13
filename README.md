@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Steep Hills of Vicodin Tears](https://open.spotify.com/track/0w63OgyF5w5TByQRLySBBs)** — A Winged Victory for the Sullen, Adam Wiltzie, Dustin O'Halloran
+> On the turntable: **[Ashes in the Snow - Remastered](https://open.spotify.com/track/6ieH021IWLGOGifX0FUzsM)** — MONO
 <!-- now-playing:end -->
 
 ### Selected work
