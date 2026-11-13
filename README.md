@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[ACES](https://open.spotify.com/track/2sCwIkIPsvrZXbHNQWkvo8)** — Fall Out Boy
+> On the turntable: **[Torn \(feat. Dolly Parton\)](https://open.spotify.com/track/22zYIBPFc8dZj6oewNSfRF)** — U2, Dolly Parton
 <!-- now-playing:end -->
 
 ### Selected work
