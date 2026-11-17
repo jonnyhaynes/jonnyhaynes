@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[21 Seconds](https://open.spotify.com/track/5KZ8y0RROfoYbB5lwCk3EJ)** — So Solid Crew
+> Last on the turntable: **[A Little Bit Of Luck](https://open.spotify.com/track/3stQUVyIkVtY7KbU8OGnEN)** — DJ Luck & MC Neat
 <!-- now-playing:end -->
 
 ### Selected work
