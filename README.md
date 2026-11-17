@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Leader of the Pack](https://open.spotify.com/track/1YYK8zYkBKxVaANQ7CkgYu)** — Wunderhorse
+> On the turntable: **[Interstate Love Song - 2019 Remaster](https://open.spotify.com/track/6qLEOZvf5gI7kWE63JE7p3)** — Stone Temple Pilots
 <!-- now-playing:end -->
 
 ### Selected work
