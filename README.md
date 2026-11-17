@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Make It Count](https://open.spotify.com/track/6zxCyp6v4zneUVi0l7rJ9y)** — Kings of Leon
+> On the turntable: **[1979](https://open.spotify.com/track/0jiEKj0fXevcv46JXUdcKh)** — The Smashing Pumpkins
 <!-- now-playing:end -->
 
 ### Selected work
