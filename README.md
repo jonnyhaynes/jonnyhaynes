@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Like a Stone](https://open.spotify.com/track/2xt2piJx6jlFkjS77YiqpL)** — Audioslave
+> On the turntable: **[Ruby](https://open.spotify.com/track/2sgBTNHz9ckmqj3rx3ez4M)** — Kaiser Chiefs
 <!-- now-playing:end -->
 
 ### Selected work
