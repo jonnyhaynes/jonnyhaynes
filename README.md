@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[1979](https://open.spotify.com/track/0jiEKj0fXevcv46JXUdcKh)** — The Smashing Pumpkins
+> On the turntable: **[Sex on Fire](https://open.spotify.com/track/5A1FmxbYVRZKy4nc16MAue)** — Kings of Leon
 <!-- now-playing:end -->
 
 ### Selected work
