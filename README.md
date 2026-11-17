@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> Last on the turntable: **[Cemetery Gates](https://open.spotify.com/track/4vJr55lngvhSM8WIh9CjQc)** — Pantera
+> On the turntable: **[21 Seconds](https://open.spotify.com/track/5KZ8y0RROfoYbB5lwCk3EJ)** — So Solid Crew
 <!-- now-playing:end -->
 
 ### Selected work
