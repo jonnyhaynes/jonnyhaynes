@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Closer](https://open.spotify.com/track/47jpI85aNpUG0KDLpTPVEq)** — Kings of Leon
+> On the turntable: **[Jackie And Wilson](https://open.spotify.com/track/5xo1Gj4WTssjQgQ0w03cf2)** — Hozier
 <!-- now-playing:end -->
 
 ### Selected work
