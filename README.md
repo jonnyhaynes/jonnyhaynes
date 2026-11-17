@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Jackie And Wilson](https://open.spotify.com/track/5xo1Gj4WTssjQgQ0w03cf2)** — Hozier
+> On the turntable: **[Amsterdam](https://open.spotify.com/track/454I78HEySdcHE8fcVabTb)** — Nothing But Thieves
 <!-- now-playing:end -->
 
 ### Selected work
