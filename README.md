@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Be Yourself](https://open.spotify.com/track/7sqp1w76zjW3K04htuRA8H)** — Audioslave
+> On the turntable: **[Dog Days Are Over](https://open.spotify.com/track/456WNXWhDwYOSf5SpTuqxd)** — Florence + The Machine
 <!-- now-playing:end -->
 
 ### Selected work
