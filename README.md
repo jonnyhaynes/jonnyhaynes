@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> Last on the turntable: **[Wait for Me](https://open.spotify.com/track/2nO1DYEg1X5GHi8SSuNJQj)** — Kings of Leon
+> Last on the turntable: **[Fisherman's Blues - 2006 Remaster](https://open.spotify.com/track/6aWZmnIsIgwyeUIOmRGL5m)** — The Waterboys
 <!-- now-playing:end -->
 
 ### Selected work
