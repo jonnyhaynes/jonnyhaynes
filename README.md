@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Smile Like You Mean It](https://open.spotify.com/track/3KANrKOFYyAxfjQJHkgBdb)** — The Killers
+> On the turntable: **[Dakota](https://open.spotify.com/track/3qaSqrrevBrb84xl5JlptU)** — Stereophonics
 <!-- now-playing:end -->
 
 ### Selected work
