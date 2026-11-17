@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Amsterdam](https://open.spotify.com/track/454I78HEySdcHE8fcVabTb)** — Nothing But Thieves
+> On the turntable: **[Gold on the Ceiling - 2021 Remaster](https://open.spotify.com/track/54bO2CHOgGN44oWmAqib0I)** — The Black Keys
 <!-- now-playing:end -->
 
 ### Selected work
