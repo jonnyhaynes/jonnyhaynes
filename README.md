@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[The Pretender](https://open.spotify.com/track/7x8dCjCr0x6x2lXKujYD34)** — Foo Fighters
+> On the turntable: **[Rose](https://open.spotify.com/track/0yQKZCTATuLTAeg89LccWn)** — Kings of Leon
 <!-- now-playing:end -->
 
 ### Selected work
