@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Dakota](https://open.spotify.com/track/3qaSqrrevBrb84xl5JlptU)** — Stereophonics
+> On the turntable: **[Weight of Love](https://open.spotify.com/track/3xMQOd1C3TXsjQ3pmzOmkC)** — The Black Keys
 <!-- now-playing:end -->
 
 ### Selected work
