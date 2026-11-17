@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[These Days](https://open.spotify.com/track/2kN05N1AQQplsgFweFAqYb)** — Foo Fighters
+> On the turntable: **[Lonely Boy - 2021 Remaster](https://open.spotify.com/track/6OQWPkRPWVMzTQsHOjIZVD)** — The Black Keys
 <!-- now-playing:end -->
 
 ### Selected work
