@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Heat Above](https://open.spotify.com/track/0zlaa4AmbFE7MVDijsyD9Q)** — Greta Van Fleet
+> On the turntable: **[Closer](https://open.spotify.com/track/47jpI85aNpUG0KDLpTPVEq)** — Kings of Leon
 <!-- now-playing:end -->
 
 ### Selected work
