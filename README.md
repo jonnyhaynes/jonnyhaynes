@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Sex on Fire](https://open.spotify.com/track/5A1FmxbYVRZKy4nc16MAue)** — Kings of Leon
+> On the turntable: **[The Pretender](https://open.spotify.com/track/7x8dCjCr0x6x2lXKujYD34)** — Foo Fighters
 <!-- now-playing:end -->
 
 ### Selected work
