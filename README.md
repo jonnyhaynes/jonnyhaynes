@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Black Smoke Rising](https://open.spotify.com/track/32BEasyNQgqXQJKoVa0fUw)** — Greta Van Fleet
+> On the turntable: **[Like a Stone](https://open.spotify.com/track/2xt2piJx6jlFkjS77YiqpL)** — Audioslave
 <!-- now-playing:end -->
 
 ### Selected work
