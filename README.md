@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[All These Things That I've Done](https://open.spotify.com/track/5vollujufHY0jMZxx77VWr)** — The Killers
+> On the turntable: **[Be Yourself](https://open.spotify.com/track/7sqp1w76zjW3K04htuRA8H)** — Audioslave
 <!-- now-playing:end -->
 
 ### Selected work
