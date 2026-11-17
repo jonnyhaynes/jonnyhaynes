@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Ruby](https://open.spotify.com/track/2sgBTNHz9ckmqj3rx3ez4M)** — Kaiser Chiefs
+> On the turntable: **[These Days](https://open.spotify.com/track/2kN05N1AQQplsgFweFAqYb)** — Foo Fighters
 <!-- now-playing:end -->
 
 ### Selected work
