@@ -39,8 +39,8 @@ I build high-impact web and mobile products with a design-led eye — mostly at
   Year.
 - **[Sitwell CC](https://www.sitwell.cc)** — the Rotherham cycling club’s site
   in Astro, React and Tailwind, edited through Sanity.
-- **[Skillswap](https://skillswap.colouringcode.com)** — a community
-  skill-swapping platform in TypeScript, React and PostgreSQL.
+- **[Tally](https://www.tally-mtc.co.uk)** — a free, offline-capable times
+  tables app for the Year 4 Multiplication Tables Check, in React and Vite.
 
 ### Elsewhere
 
