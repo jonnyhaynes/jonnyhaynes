@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[bad luck](https://open.spotify.com/track/1SbiIP1m1P351gOqFh4UPy)** — We Came As Romans
+> On the turntable: **[Villain Arc](https://open.spotify.com/track/4VOUg9P2E8yonvbyp9Lc5i)** — Bury Tomorrow
 <!-- now-playing:end -->
 
 ### Selected work
