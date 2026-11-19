@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Daggers](https://open.spotify.com/track/0JXILsWNyXHEd2IzofS3jX)** — We Came As Romans, Zero 9:36
+> On the turntable: **[Hurricane](https://open.spotify.com/track/1zX4V0do1HF0Kvo1q1RWmX)** — While She Sleeps
 <!-- now-playing:end -->
 
 ### Selected work
