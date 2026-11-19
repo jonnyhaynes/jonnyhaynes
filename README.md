@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Lucid](https://open.spotify.com/track/7mCT4WQa1SJNvTnQ59cmE0)** — Polaris
+> On the turntable: **[Polarized](https://open.spotify.com/track/72UC2guQG3czHDFHaybvih)** — As I Lay Dying
 <!-- now-playing:end -->
 
 ### Selected work
