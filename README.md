@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Pure Ecstasy](https://open.spotify.com/track/33GWdWCPIm84t9DYJefufO)** — Beartooth
+> On the turntable: **[ROTCULT](https://open.spotify.com/track/55FlA7itrUOCe54oYuQdCs)** — GAI 荄
 <!-- now-playing:end -->
 
 ### Selected work
