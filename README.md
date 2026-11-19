@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Redfog](https://open.spotify.com/track/24iBRrfYfUjhq8dhBLTQwm)** — Orbit Culture
+> On the turntable: **[BLACK SHEEP](https://open.spotify.com/track/68chs4vh0WYHDXrUgxKdWj)** — Make Them Suffer
 <!-- now-playing:end -->
 
 ### Selected work
