@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[SLEEPS SOCIETY](https://open.spotify.com/track/3ZFP6XrE0FHu4duyi7vRoL)** — While She Sleeps
+> On the turntable: **[Watch Me Burn](https://open.spotify.com/track/1y8EEqXNbi7LtBpPLMPRui)** — Crystal Lake
 <!-- now-playing:end -->
 
 ### Selected work
