@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Way Of Pain](https://open.spotify.com/track/4ZLYM6vikZp5qWvWjFPwW1)** — Wage War
+> On the turntable: **[Living with a Ghost](https://open.spotify.com/track/3mo8fWJrQwq7XhhfvDKi6s)** — Light The Torch
 <!-- now-playing:end -->
 
 ### Selected work
