@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Hollowed Heart](https://open.spotify.com/track/3ffljpjKfPISFjCt4zpYUk)** — Make Them Suffer
+> On the turntable: **[Sandman](https://open.spotify.com/track/4OGRzREXSCG8tmJFhG2sQg)** — Resolve
 <!-- now-playing:end -->
 
 ### Selected work
