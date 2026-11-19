@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Levitate](https://open.spotify.com/track/3nzC7h6uULmlCuLHoeMGJ7)** — Bleed From Within
+> On the turntable: **[DEAD SILENT](https://open.spotify.com/track/1FdHuhg8xcm4sVHc6xl2hd)** — We Came As Romans, Make Them Suffer
 <!-- now-playing:end -->
 
 ### Selected work
