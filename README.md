@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[THE GUILTY PARTY](https://open.spotify.com/track/2f5o8oVvArn95ueNkiBHZ5)** — While She Sleeps
+> On the turntable: **[Apollo](https://open.spotify.com/track/6qZthmNcaK0jlrkMZ3khmy)** — Crystal Lake
 <!-- now-playing:end -->
 
 ### Selected work
