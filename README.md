@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Boltcutter](https://open.spotify.com/track/6Qe4DUWhgMt6cKlOJ5mDhc)** — Bury Tomorrow
+> On the turntable: **[Immortal Desire](https://open.spotify.com/track/7yAOWHgv5cGz3UsHAr6RCJ)** — Bleed From Within, Brann Dailor
 <!-- now-playing:end -->
 
 ### Selected work
