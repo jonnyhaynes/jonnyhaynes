@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[In Waves](https://open.spotify.com/track/1yYr4D1KjhhyDD5bZIiFQy)** — Trivium
+> On the turntable: **[Shaped By Fire](https://open.spotify.com/track/2BH57oJ5d8H4uEUwRXAJaB)** — As I Lay Dying
 <!-- now-playing:end -->
 
 ### Selected work
