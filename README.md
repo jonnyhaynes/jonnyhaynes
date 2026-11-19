@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Harbinger](https://open.spotify.com/track/5knLNMN1se4hm65TcY2Vf2)** — Polaris
+> On the turntable: **[End Of Days](https://open.spotify.com/track/3xIoKSOE1WCHR9HqsmATRZ)** — Defects
 <!-- now-playing:end -->
 
 ### Selected work
