@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Older Days](https://open.spotify.com/track/5q2oiS8mE760W3lyYNK3Xp)** — Resolve, ten56., Paleface Swiss
+> On the turntable: **[Hail to the Fire](https://open.spotify.com/track/35tcnbLQUoCq0oIXprvUJD)** — Crystal Lake
 <!-- now-playing:end -->
 
 ### Selected work
