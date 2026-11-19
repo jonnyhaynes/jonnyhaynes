@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Iron Grip](https://open.spotify.com/track/0geXOk2QS4CkcaE9KegJPR)** — The Narrator
+> On the turntable: **[Four Walls](https://open.spotify.com/track/04np64OjIt01Z7KSYWwhcC)** — While She Sleeps
 <!-- now-playing:end -->
 
 ### Selected work
