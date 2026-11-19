@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Impermanence](https://open.spotify.com/track/3p7qbTzPf4jKeEEwy765sI)** — Architects, Winston McCall
+> On the turntable: **[bad luck](https://open.spotify.com/track/1SbiIP1m1P351gOqFh4UPy)** — We Came As Romans
 <!-- now-playing:end -->
 
 ### Selected work
