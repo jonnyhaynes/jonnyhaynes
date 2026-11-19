@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[4x4](https://open.spotify.com/track/0KH9eQZB8hD2BVESupM1sn)** — Wage War
+> On the turntable: **[Redfog](https://open.spotify.com/track/24iBRrfYfUjhq8dhBLTQwm)** — Orbit Culture
 <!-- now-playing:end -->
 
 ### Selected work
