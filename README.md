@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Apollo](https://open.spotify.com/track/6qZthmNcaK0jlrkMZ3khmy)** — Crystal Lake
+> On the turntable: **[Royal Blood](https://open.spotify.com/track/3SaCqtAXUWB6Q4ZJCm4TdY)** — Bury Tomorrow
 <!-- now-playing:end -->
 
 ### Selected work
