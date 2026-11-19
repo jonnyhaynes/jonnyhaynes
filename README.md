@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Villain Arc](https://open.spotify.com/track/4VOUg9P2E8yonvbyp9Lc5i)** — Bury Tomorrow
+> On the turntable: **[Harbinger](https://open.spotify.com/track/5knLNMN1se4hm65TcY2Vf2)** — Polaris
 <!-- now-playing:end -->
 
 ### Selected work
