@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Savior](https://open.spotify.com/track/0HFMx8md8QDLZuMXpDXltd)** — Any Given Day
+> On the turntable: **[Catastrophist](https://open.spotify.com/track/3fnqNxjN7o0tJe7zOQZV68)** — Trivium
 <!-- now-playing:end -->
 
 ### Selected work
