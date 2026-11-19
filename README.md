@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Devilcry](https://open.spotify.com/track/5syGLYhOUtAuXF0l1w3sSi)** — Crystal Lake
+> On the turntable: **[FAKERS PLAGUE](https://open.spotify.com/track/3fO8ERolX2kaR7vRarwey9)** — While She Sleeps
 <!-- now-playing:end -->
 
 ### Selected work
