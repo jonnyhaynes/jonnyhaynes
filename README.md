@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Polarized](https://open.spotify.com/track/72UC2guQG3czHDFHaybvih)** — As I Lay Dying
+> On the turntable: **[Iron Grip](https://open.spotify.com/track/0geXOk2QS4CkcaE9KegJPR)** — The Narrator
 <!-- now-playing:end -->
 
 ### Selected work
