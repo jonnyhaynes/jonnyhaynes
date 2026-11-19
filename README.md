@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[ROTCULT](https://open.spotify.com/track/55FlA7itrUOCe54oYuQdCs)** — GAI 荄
+> On the turntable: **[4x4](https://open.spotify.com/track/0KH9eQZB8hD2BVESupM1sn)** — Wage War
 <!-- now-playing:end -->
 
 ### Selected work
