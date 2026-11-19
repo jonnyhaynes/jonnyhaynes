@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[+81](https://open.spotify.com/track/4DIzE1ewuqEnO0lB2wwvty)** — Crystal Lake
+> On the turntable: **[Pills From The Start](https://open.spotify.com/track/25HHxE5dPFpw6GDU2X3r9a)** — The Narrator
 <!-- now-playing:end -->
 
 ### Selected work
