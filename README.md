@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[split](https://open.spotify.com/track/6b1nyF4IrAI4d1GRmTnxAQ)** — thrown
+> On the turntable: **[My Own Grave](https://open.spotify.com/track/26ANXDR5NMNiSZG657PPd7)** — As I Lay Dying
 <!-- now-playing:end -->
 
 ### Selected work
