@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Immortal Desire](https://open.spotify.com/track/7yAOWHgv5cGz3UsHAr6RCJ)** — Bleed From Within, Brann Dailor
+> On the turntable: **[+81](https://open.spotify.com/track/4DIzE1ewuqEnO0lB2wwvty)** — Crystal Lake
 <!-- now-playing:end -->
 
 ### Selected work
