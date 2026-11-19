@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Knight Life](https://open.spotify.com/track/1MS9wYAvmguB1iQynr5Zyu)** — Bury Tomorrow
+> On the turntable: **[Stay Away](https://open.spotify.com/track/0UZlOO9q3e8jxBj724f6oN)** — Our Promise
 <!-- now-playing:end -->
 
 ### Selected work
