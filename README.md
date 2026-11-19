@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Catastrophist](https://open.spotify.com/track/3fnqNxjN7o0tJe7zOQZV68)** — Trivium
+> On the turntable: **[Consume](https://open.spotify.com/track/5OY0jal9HDNkQBcPpcuj7K)** — Polaris
 <!-- now-playing:end -->
 
 ### Selected work
