@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Never Enough](https://open.spotify.com/track/6sNAUr0DwYMTfGbjNiszGv)** — ACCVSED
+> On the turntable: **[Aurora](https://open.spotify.com/track/6A9YIAijYSaRcg34Lus4hV)** — The Narrator
 <!-- now-playing:end -->
 
 ### Selected work
