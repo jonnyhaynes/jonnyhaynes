@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Epitaph](https://open.spotify.com/track/2xWvMqVivddrQiC7kAvnnH)** — Make Them Suffer
+> On the turntable: **[301](https://open.spotify.com/track/7psdrSpdn3Dt3ebkIfYkDY)** — Bury Tomorrow
 <!-- now-playing:end -->
 
 ### Selected work
