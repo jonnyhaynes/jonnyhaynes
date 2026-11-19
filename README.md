@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Hail to the Fire](https://open.spotify.com/track/35tcnbLQUoCq0oIXprvUJD)** — Crystal Lake
+> On the turntable: **[SIRENS](https://open.spotify.com/track/0CacxTmYaWBnENDN4pH5yI)** — Windwaker
 <!-- now-playing:end -->
 
 ### Selected work
