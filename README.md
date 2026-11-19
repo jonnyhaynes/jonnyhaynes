@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[DEAD SILENT](https://open.spotify.com/track/1FdHuhg8xcm4sVHc6xl2hd)** — We Came As Romans, Make Them Suffer
+> On the turntable: **[Savior](https://open.spotify.com/track/0HFMx8md8QDLZuMXpDXltd)** — Any Given Day
 <!-- now-playing:end -->
 
 ### Selected work
