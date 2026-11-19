@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Four Walls](https://open.spotify.com/track/04np64OjIt01Z7KSYWwhcC)** — While She Sleeps
+> On the turntable: **[split](https://open.spotify.com/track/6b1nyF4IrAI4d1GRmTnxAQ)** — thrown
 <!-- now-playing:end -->
 
 ### Selected work
