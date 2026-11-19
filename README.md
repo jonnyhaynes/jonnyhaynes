@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Paradise](https://open.spotify.com/track/0tbAUZAHXDemjIRZoKtWiD)** — I Prevail, Amira Elfeky
+> On the turntable: **[Avoider](https://open.spotify.com/track/0mu7L3fjM2rrXH2L5OExe9)** — ACCVSED
 <!-- now-playing:end -->
 
 ### Selected work
