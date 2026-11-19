@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Hypochondria](https://open.spotify.com/track/0Ta1d0OUwjTANXIu0gz8a9)** — Dragged Under
+> On the turntable: **[More Than Dreaming](https://open.spotify.com/track/7Lx46Dt2A9Dr9cSsm2okk0)** — Light The Torch
 <!-- now-playing:end -->
 
 ### Selected work
