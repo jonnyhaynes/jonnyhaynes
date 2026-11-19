@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Avoider](https://open.spotify.com/track/0mu7L3fjM2rrXH2L5OExe9)** — ACCVSED
+> On the turntable: **[Devilcry](https://open.spotify.com/track/5syGLYhOUtAuXF0l1w3sSi)** — Crystal Lake
 <!-- now-playing:end -->
 
 ### Selected work
