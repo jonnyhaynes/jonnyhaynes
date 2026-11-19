@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> Last on the turntable: **[Fisherman's Blues - 2006 Remaster](https://open.spotify.com/track/6aWZmnIsIgwyeUIOmRGL5m)** — The Waterboys
+> On the turntable: **[Assimilate](https://open.spotify.com/track/0B4rNyIm6WaKBwkcXnGJKh)** — Bury Tomorrow
 <!-- now-playing:end -->
 
 ### Selected work
