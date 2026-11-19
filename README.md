@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Unconquered](https://open.spotify.com/track/3Pg10pBmK9PkAmEgRbiMD6)** — Miss May I
+> On the turntable: **[THE GUILTY PARTY](https://open.spotify.com/track/2f5o8oVvArn95ueNkiBHZ5)** — While She Sleeps
 <!-- now-playing:end -->
 
 ### Selected work
