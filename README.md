@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Sandman](https://open.spotify.com/track/4OGRzREXSCG8tmJFhG2sQg)** — Resolve
+> On the turntable: **[Day of the Locust](https://open.spotify.com/track/67iWN2uH4u8belm9XIsr9U)** — ACCVSED
 <!-- now-playing:end -->
 
 ### Selected work
