@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Assimilate](https://open.spotify.com/track/0B4rNyIm6WaKBwkcXnGJKh)** — Bury Tomorrow
+> On the turntable: **[True Believers \(Feat. Sam Carter\)](https://open.spotify.com/track/6bzbBeqibhl70svGOboJDN)** — DON BROCO, Sam Carter
 <!-- now-playing:end -->
 
 ### Selected work
