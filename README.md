@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[End Of Days](https://open.spotify.com/track/3xIoKSOE1WCHR9HqsmATRZ)** — Defects
+> Last on the turntable: **[Lost in the Moment](https://open.spotify.com/track/50bLxpeTlRwuVSPnSkUwQH)** — We Came As Romans
 <!-- now-playing:end -->
 
 ### Selected work
