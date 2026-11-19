@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Consume](https://open.spotify.com/track/5OY0jal9HDNkQBcPpcuj7K)** — Polaris
+> On the turntable: **[Daggers](https://open.spotify.com/track/0JXILsWNyXHEd2IzofS3jX)** — We Came As Romans, Zero 9:36
 <!-- now-playing:end -->
 
 ### Selected work
