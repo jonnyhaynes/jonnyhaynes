@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Living with a Ghost](https://open.spotify.com/track/3mo8fWJrQwq7XhhfvDKi6s)** — Light The Torch
+> On the turntable: **[Knight Life](https://open.spotify.com/track/1MS9wYAvmguB1iQynr5Zyu)** — Bury Tomorrow
 <!-- now-playing:end -->
 
 ### Selected work
