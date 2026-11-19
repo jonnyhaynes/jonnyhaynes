@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[LOTUS](https://open.spotify.com/track/0kmK5QHi81CYtjqHEmRFAB)** — AVRALIZE
+> On the turntable: **[Deadwood](https://open.spotify.com/track/4UEURR9fxLpwKFWDDMbB6E)** — Sylosis
 <!-- now-playing:end -->
 
 ### Selected work
