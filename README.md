@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[b2tm ○](https://open.spotify.com/track/0ZZhrIIIOKdhwKU7ZuoQAU)** — We Came As Romans, Bury Tomorrow
+> On the turntable: **[Pure Ecstasy](https://open.spotify.com/track/33GWdWCPIm84t9DYJefufO)** — Beartooth
 <!-- now-playing:end -->
 
 ### Selected work
