@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Ghost Of Me](https://open.spotify.com/track/2lHPM1vPZj8qLX6n3kBITM)** — Make Them Suffer
+> On the turntable: **[Lucid](https://open.spotify.com/track/7mCT4WQa1SJNvTnQ59cmE0)** — Polaris
 <!-- now-playing:end -->
 
 ### Selected work
