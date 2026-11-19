@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Watch Me Burn](https://open.spotify.com/track/1y8EEqXNbi7LtBpPLMPRui)** — Crystal Lake
+> On the turntable: **[Cemetery](https://open.spotify.com/track/4HkIolmDnYfLCyh4hXnnul)** — Bury Tomorrow
 <!-- now-playing:end -->
 
 ### Selected work
