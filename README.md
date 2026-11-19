@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[My Own Grave](https://open.spotify.com/track/26ANXDR5NMNiSZG657PPd7)** — As I Lay Dying
+> On the turntable: **[Lionheart](https://open.spotify.com/track/4Tuif5PfTpZMWxH3ojSywJ)** — Bury Tomorrow
 <!-- now-playing:end -->
 
 ### Selected work
