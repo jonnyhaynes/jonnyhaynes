@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Stay Away](https://open.spotify.com/track/0UZlOO9q3e8jxBj724f6oN)** — Our Promise
+> On the turntable: **[Boltcutter](https://open.spotify.com/track/6Qe4DUWhgMt6cKlOJ5mDhc)** — Bury Tomorrow
 <!-- now-playing:end -->
 
 ### Selected work
