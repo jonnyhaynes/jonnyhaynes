@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[More Than Dreaming](https://open.spotify.com/track/7Lx46Dt2A9Dr9cSsm2okk0)** — Light The Torch
+> On the turntable: **[Ghost Of Me](https://open.spotify.com/track/2lHPM1vPZj8qLX6n3kBITM)** — Make Them Suffer
 <!-- now-playing:end -->
 
 ### Selected work
