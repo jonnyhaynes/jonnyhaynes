@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> Last on the turntable: **[Lost in the Moment](https://open.spotify.com/track/50bLxpeTlRwuVSPnSkUwQH)** — We Came As Romans
+> Last on the turntable: **[Cochise](https://open.spotify.com/track/1TDk2Jmi4dVZhm2dum3Jim)** — Audioslave
 <!-- now-playing:end -->
 
 ### Selected work
