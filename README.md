@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Torn Between](https://open.spotify.com/track/2CWpKLI7nGIODua9GumZ0J)** — As I Lay Dying
+> On the turntable: **[LOTUS](https://open.spotify.com/track/0kmK5QHi81CYtjqHEmRFAB)** — AVRALIZE
 <!-- now-playing:end -->
 
 ### Selected work
