@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Molotov](https://open.spotify.com/track/3wGShrxt3RsA2tWo1NPoAg)** — Resolve
+> On the turntable: **[Never Enough](https://open.spotify.com/track/6sNAUr0DwYMTfGbjNiszGv)** — ACCVSED
 <!-- now-playing:end -->
 
 ### Selected work
