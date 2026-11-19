@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[FAKERS PLAGUE](https://open.spotify.com/track/3fO8ERolX2kaR7vRarwey9)** — While She Sleeps
+> On the turntable: **[Torn Between](https://open.spotify.com/track/2CWpKLI7nGIODua9GumZ0J)** — As I Lay Dying
 <!-- now-playing:end -->
 
 ### Selected work
