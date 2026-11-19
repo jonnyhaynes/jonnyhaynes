@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[SIRENS](https://open.spotify.com/track/0CacxTmYaWBnENDN4pH5yI)** — Windwaker
+> On the turntable: **[Weaponized](https://open.spotify.com/track/3EMS8JKWQufAWiZNnKmgRV)** — Make Them Suffer
 <!-- now-playing:end -->
 
 ### Selected work
