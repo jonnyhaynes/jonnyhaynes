@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[I Am the Highway](https://open.spotify.com/track/3bwAS8cN7Xtzvv5UurJOOX)** — Audioslave
+> On the turntable: **[Hypnotize](https://open.spotify.com/track/5M8EfAPEPzTQcr4tsjcimR)** — Audioslave
 <!-- now-playing:end -->
 
 ### Selected work
