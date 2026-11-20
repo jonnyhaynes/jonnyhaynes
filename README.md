@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Cochise](https://open.spotify.com/track/1TDk2Jmi4dVZhm2dum3Jim)** — Audioslave
+> On the turntable: **[What You Are](https://open.spotify.com/track/4Dz0U7qR4GxIZAOGGEPuTf)** — Audioslave
 <!-- now-playing:end -->
 
 ### Selected work
