@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[What You Are](https://open.spotify.com/track/4Dz0U7qR4GxIZAOGGEPuTf)** — Audioslave
+> On the turntable: **[Set It Off](https://open.spotify.com/track/3K2YKboOTnzSokPEAZKjbX)** — Audioslave
 <!-- now-playing:end -->
 
 ### Selected work
