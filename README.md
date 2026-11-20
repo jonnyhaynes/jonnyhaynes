@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Set It Off](https://open.spotify.com/track/3K2YKboOTnzSokPEAZKjbX)** — Audioslave
+> On the turntable: **[I Am the Highway](https://open.spotify.com/track/3bwAS8cN7Xtzvv5UurJOOX)** — Audioslave
 <!-- now-playing:end -->
 
 ### Selected work
