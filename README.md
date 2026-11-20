@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[The Last Remaining Light](https://open.spotify.com/track/3ItgVE7kFVA2I6eM1POc8W)** — Audioslave
+> Last on the turntable: **[The Last Remaining Light](https://open.spotify.com/track/3ItgVE7kFVA2I6eM1POc8W)** — Audioslave
 <!-- now-playing:end -->
 
 ### Selected work
