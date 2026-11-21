@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> Last on the turntable: **[HWY 666](https://open.spotify.com/track/1I45GWyejiphTaj0UJPkEm)** — Corey Taylor
+> Last on the turntable: **[Snuff \(Live in London, '16\)](https://open.spotify.com/track/3auN63rMDBPfrvuer0MOCi)** — Corey Taylor
 <!-- now-playing:end -->
 
 ### Selected work
