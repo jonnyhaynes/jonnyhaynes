@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> Last on the turntable: **[Billie Jean](https://open.spotify.com/track/0MHgys5H8i0bvpIScMeNTl)** — Michael Jackson
+> On the turntable: **[Can't Stop](https://open.spotify.com/track/3ZOEytgrvLwQaqXreDs2Jx)** — Red Hot Chili Peppers
 <!-- now-playing:end -->
 
 ### Selected work
