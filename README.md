@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Joseph](https://open.spotify.com/track/1BdI8NEvZx61tnkbuAxC5x)** — Falling In Reverse, Corey Taylor, Serj Tankian
+> Last on the turntable: **[HWY 666](https://open.spotify.com/track/1I45GWyejiphTaj0UJPkEm)** — Corey Taylor
 <!-- now-playing:end -->
 
 ### Selected work
