@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> Last on the turntable: **[The Girl Is Mine \(with Paul McCartney\)](https://open.spotify.com/track/46bcHfciO740CEABQrvLrR)** — Michael Jackson, Paul McCartney
+> Last on the turntable: **[Billie Jean](https://open.spotify.com/track/0MHgys5H8i0bvpIScMeNTl)** — Michael Jackson
 <!-- now-playing:end -->
 
 ### Selected work
