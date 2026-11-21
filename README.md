@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[They Don't Care About Us](https://open.spotify.com/track/3wuCCNCnBhJlwkIJTBZFiv)** — Michael Jackson
+> On the turntable: **[Dirty Diana - 2012 Remaster](https://open.spotify.com/track/0AcgKF7kbSoCkh3n7vlHwK)** — Michael Jackson
 <!-- now-playing:end -->
 
 ### Selected work
