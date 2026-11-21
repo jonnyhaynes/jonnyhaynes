@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> Last on the turntable: **[Crestone Peak](https://open.spotify.com/track/1dza1V1ayavKLYFwBfzbhy)** — Makeup And Vanity Set
+> On the turntable: **[Joseph](https://open.spotify.com/track/1BdI8NEvZx61tnkbuAxC5x)** — Falling In Reverse, Corey Taylor, Serj Tankian
 <!-- now-playing:end -->
 
 ### Selected work
