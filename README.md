@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Baby Be Mine](https://open.spotify.com/track/0z0HC6sLfJsTP5bqVPiIw6)** — Michael Jackson
+> Last on the turntable: **[The Girl Is Mine \(with Paul McCartney\)](https://open.spotify.com/track/46bcHfciO740CEABQrvLrR)** — Michael Jackson, Paul McCartney
 <!-- now-playing:end -->
 
 ### Selected work
