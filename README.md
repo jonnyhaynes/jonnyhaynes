@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Can't Stop](https://open.spotify.com/track/3ZOEytgrvLwQaqXreDs2Jx)** — Red Hot Chili Peppers
+> On the turntable: **[No One Knows](https://open.spotify.com/track/6y20BV5L33R8YXM0YuI38N)** — Queens of the Stone Age
 <!-- now-playing:end -->
 
 ### Selected work
