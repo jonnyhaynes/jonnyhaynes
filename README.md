@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Wanna Be Startin' Somethin'](https://open.spotify.com/track/1JPzjgU6a449VXMiq8dVG2)** — Michael Jackson
+> On the turntable: **[Workin' Day and Night](https://open.spotify.com/track/1Agb7eFxZreA5TdIjcbjHz)** — Michael Jackson
 <!-- now-playing:end -->
 
 ### Selected work
