@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Rockin' Robin](https://open.spotify.com/track/2aadUB2b4hugbdIPU8Aypk)** — Michael Jackson
+> Last on the turntable: **[Do They Know It's Christmas? - 1984 Version](https://open.spotify.com/track/4Yg2w0P29BBBMixyeNjDtj)** — Band Aid
 <!-- now-playing:end -->
 
 ### Selected work
