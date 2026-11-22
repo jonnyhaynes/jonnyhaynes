@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[When Worlds Collide](https://open.spotify.com/track/6aF5JtQSrh7wNrkDE9B0My)** — Powerman 5000
+> On the turntable: **[War Pigs - 2009 Remaster](https://open.spotify.com/track/6TYQRlRci6AkVrN9a5C7ne)** — Black Sabbath
 <!-- now-playing:end -->
 
 ### Selected work
