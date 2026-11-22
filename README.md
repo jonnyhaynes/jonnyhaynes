@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> Last on the turntable: **[I Wish It Could Be Christmas Everyday](https://open.spotify.com/track/1mH6tZC6iXIHPI6EixCwxw)** — Wizzard
+> On the turntable: **[Psychosocial](https://open.spotify.com/track/3RAFcUBrCNaboRXoP3S5t1)** — Slipknot
 <!-- now-playing:end -->
 
 ### Selected work
