@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Crazy](https://open.spotify.com/track/0sRCmIxg5XlyPPrvxTlwEr)** — Mushroomhead
+> On the turntable: **[When Worlds Collide](https://open.spotify.com/track/6aF5JtQSrh7wNrkDE9B0My)** — Powerman 5000
 <!-- now-playing:end -->
 
 ### Selected work
