@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[All Alone on Christmas](https://open.spotify.com/track/7kwAGjaoIvIEfL2poi9A1U)** — Darlene Love
+> On the turntable: **[All I Want for Christmas Is You](https://open.spotify.com/track/0bYg9bo50gSsH3LtXe2SQn)** — Mariah Carey
 <!-- now-playing:end -->
 
 ### Selected work
