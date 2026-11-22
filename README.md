@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[I Wish It Could Be Christmas Everyday](https://open.spotify.com/track/1mH6tZC6iXIHPI6EixCwxw)** — Wizzard
+> On the turntable: **[Sparkle & Shine](https://open.spotify.com/track/3thjnkbDP3d36IOLFCOJnX)** — Nativity! Cast
 <!-- now-playing:end -->
 
 ### Selected work
