@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Ace of Spades](https://open.spotify.com/track/3CIOopLwvyMvXk97ZEksKO)** — Motörhead
+> On the turntable: **[Hallowed Be Thy Name - 2015 Remaster](https://open.spotify.com/track/469rBLYJUZHMJLtq2Wch3h)** — Iron Maiden
 <!-- now-playing:end -->
 
 ### Selected work
