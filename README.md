@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[My Way](https://open.spotify.com/track/2gSVKxPDww9Eep5rdvtdem)** — Limp Bizkit
+> On the turntable: **[Can't Stop](https://open.spotify.com/track/3ZOEytgrvLwQaqXreDs2Jx)** — Red Hot Chili Peppers
 <!-- now-playing:end -->
 
 ### Selected work
