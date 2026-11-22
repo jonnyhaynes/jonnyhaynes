@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Before I Forget](https://open.spotify.com/track/6wqJeItl3Vc3az4ZicSQAB)** — Slipknot
+> Last on the turntable: **[Wait and Bleed](https://open.spotify.com/track/15DLl1r2zi07Ssq5RT1yT0)** — Slipknot
 <!-- now-playing:end -->
 
 ### Selected work
