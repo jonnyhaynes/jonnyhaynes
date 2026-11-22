@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> Last on the turntable: **[Shake Up Christmas](https://open.spotify.com/track/1NghHeg0wE32eBYrQBVQXL)** — Train
+> On the turntable: **[Clint Eastwood](https://open.spotify.com/track/1RKUoGiLEbcXN4GY4spQDx)** — Gorillaz, Del The Funky Homosapien
 <!-- now-playing:end -->
 
 ### Selected work
