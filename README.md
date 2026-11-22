@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> Last on the turntable: **[The Devil in I](https://open.spotify.com/track/5hheGdf1cb4rK0FNiedCfK)** — Slipknot
+> On the turntable: **[Stop The Cavalry](https://open.spotify.com/track/5QCljyfo7PtOMseAmad07i)** — Desford Colliery Band
 <!-- now-playing:end -->
 
 ### Selected work
