@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Hallowed Be Thy Name - 2015 Remaster](https://open.spotify.com/track/469rBLYJUZHMJLtq2Wch3h)** — Iron Maiden
+> On the turntable: **[Crazy](https://open.spotify.com/track/0sRCmIxg5XlyPPrvxTlwEr)** — Mushroomhead
 <!-- now-playing:end -->
 
 ### Selected work
