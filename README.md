@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[We Are The Rest](https://open.spotify.com/track/1c206nIhscBrNMXM2b5Jfw)** — Corey Taylor
+> On the turntable: **[Behind Blue Eyes](https://open.spotify.com/track/1MTQHCpraD4S8g5PAFKzoj)** — Limp Bizkit
 <!-- now-playing:end -->
 
 ### Selected work
