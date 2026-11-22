@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> Last on the turntable: **[Wait and Bleed](https://open.spotify.com/track/15DLl1r2zi07Ssq5RT1yT0)** — Slipknot
+> Last on the turntable: **[The Devil in I](https://open.spotify.com/track/5hheGdf1cb4rK0FNiedCfK)** — Slipknot
 <!-- now-playing:end -->
 
 ### Selected work
