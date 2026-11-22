@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Psychosocial](https://open.spotify.com/track/3RAFcUBrCNaboRXoP3S5t1)** — Slipknot
+> On the turntable: **[Before I Forget](https://open.spotify.com/track/6wqJeItl3Vc3az4ZicSQAB)** — Slipknot
 <!-- now-playing:end -->
 
 ### Selected work
