@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Mistletoe and Wine](https://open.spotify.com/track/1pWmD3GQ3TXjOJRdhEpwxc)** — The Darkness
+> On the turntable: **[Last Christmas - Remastered](https://open.spotify.com/track/6wn2nmFn3wDuiMldRiuRuL)** — Wham!
 <!-- now-playing:end -->
 
 ### Selected work
