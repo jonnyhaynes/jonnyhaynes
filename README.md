@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[The Man](https://open.spotify.com/track/5aWhs651KYM26HYM16kRdk)** — The Killers
+> On the turntable: **[Never Miss A Beat](https://open.spotify.com/track/0bXhjlgUddDlJzHOeVM4Tq)** — Kaiser Chiefs
 <!-- now-playing:end -->
 
 ### Selected work
