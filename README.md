@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Bubbles](https://open.spotify.com/track/1aKNbn5AsDWydycvr1gYBa)** — Biffy Clyro
+> On the turntable: **[Lifestyles of the Rich & Famous](https://open.spotify.com/track/2g2a5kDeZexbUTD8abcvm6)** — Good Charlotte
 <!-- now-playing:end -->
 
 ### Selected work
