@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[I Predict A Riot](https://open.spotify.com/track/75D3n6wnFQmu1HVmLAlWM4)** — Kaiser Chiefs
+> On the turntable: **[All These Things That I've Done - Radio Edit](https://open.spotify.com/track/0XMJx5ZtuHPqdzncH7kX1L)** — The Killers
 <!-- now-playing:end -->
 
 ### Selected work
