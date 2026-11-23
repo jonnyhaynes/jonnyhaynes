@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Bullet With Butterfly Wings](https://open.spotify.com/track/0KwS7UzjiMQQCRELu6GStg)** — The Smashing Pumpkins
+> On the turntable: **[Kill the Director](https://open.spotify.com/track/1tF1J2fK1F9iQ8UUD1Iai5)** — The Wombats
 <!-- now-playing:end -->
 
 ### Selected work
