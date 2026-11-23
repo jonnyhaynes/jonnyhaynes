@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Bohemian Like You](https://open.spotify.com/track/3APHT3KjbHi9OllkVQsuXF)** — The Dandy Warhols
+> On the turntable: **[Bullet With Butterfly Wings](https://open.spotify.com/track/0KwS7UzjiMQQCRELu6GStg)** — The Smashing Pumpkins
 <!-- now-playing:end -->
 
 ### Selected work
