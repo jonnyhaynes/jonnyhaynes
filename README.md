@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Tick Tick Boom](https://open.spotify.com/track/7xl2ZaOnKAxJyrkIQe2S43)** — The Hives
+> On the turntable: **[Tonight, Tonight](https://open.spotify.com/track/4s3m0Ku8CPtIxHT6OeO6WT)** — The Smashing Pumpkins
 <!-- now-playing:end -->
 
 ### Selected work
