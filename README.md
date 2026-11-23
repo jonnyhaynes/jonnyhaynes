@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Tonight, Tonight](https://open.spotify.com/track/4s3m0Ku8CPtIxHT6OeO6WT)** — The Smashing Pumpkins
+> On the turntable: **[All The Small Things](https://open.spotify.com/track/2m1hi0nfMR9vdGC8UcrnwU)** — blink-182
 <!-- now-playing:end -->
 
 ### Selected work
