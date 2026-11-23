@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Bones](https://open.spotify.com/track/4shKoD4U0rsE6UDjyPEjyK)** — The Killers
+> On the turntable: **[Walk](https://open.spotify.com/track/76Je5Wklky23mVoxiRszcN)** — Foo Fighters
 <!-- now-playing:end -->
 
 ### Selected work
