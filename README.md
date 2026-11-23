@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Na Na Na \(Na Na Na Na Na Na Na Na Na\) - 2026 Remaster](https://open.spotify.com/track/01sasg8VONftGNSlYkfw3M)** — My Chemical Romance
+> Last on the turntable: **[Starlight](https://open.spotify.com/track/3skn2lauGk7Dx6bVIt5DVj)** — Muse
 <!-- now-playing:end -->
 
 ### Selected work
