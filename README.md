@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[The Sky Is A Neighborhood](https://open.spotify.com/track/3kdMzXOcrDIdSWLdONHNK5)** — Foo Fighters
+> On the turntable: **[Spaceman](https://open.spotify.com/track/1A8SxnqRK3qabmuN2qxIpa)** — The Killers
 <!-- now-playing:end -->
 
 ### Selected work
