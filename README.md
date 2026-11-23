@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Map of the Problematique](https://open.spotify.com/track/5YXr4AGfUQpLSxtFSsKUh6)** — Muse
+> On the turntable: **[Bubbles](https://open.spotify.com/track/1aKNbn5AsDWydycvr1gYBa)** — Biffy Clyro
 <!-- now-playing:end -->
 
 ### Selected work
