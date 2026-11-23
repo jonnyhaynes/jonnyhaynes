@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Knights of Cydonia](https://open.spotify.com/track/7ouMYWpwJ422jRcDASZB7P)** — Muse
+> On the turntable: **[Read My Mind](https://open.spotify.com/track/7cX4PJz1old9fyFI8RlfgW)** — The Killers
 <!-- now-playing:end -->
 
 ### Selected work
