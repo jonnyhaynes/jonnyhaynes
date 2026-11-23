@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[All The Small Things](https://open.spotify.com/track/2m1hi0nfMR9vdGC8UcrnwU)** — blink-182
+> On the turntable: **[Na Na Na \(Na Na Na Na Na Na Na Na Na\) - 2026 Remaster](https://open.spotify.com/track/01sasg8VONftGNSlYkfw3M)** — My Chemical Romance
 <!-- now-playing:end -->
 
 ### Selected work
