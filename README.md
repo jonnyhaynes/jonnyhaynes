@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Spaceman](https://open.spotify.com/track/1A8SxnqRK3qabmuN2qxIpa)** — The Killers
+> On the turntable: **[Take Me Out](https://open.spotify.com/track/20I8RduZC2PWMWTDCZuuAN)** — Franz Ferdinand
 <!-- now-playing:end -->
 
 ### Selected work
