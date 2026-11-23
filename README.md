@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Lifestyles of the Rich & Famous](https://open.spotify.com/track/2g2a5kDeZexbUTD8abcvm6)** — Good Charlotte
+> On the turntable: **[I Don't Care](https://open.spotify.com/track/26VG1uCazw9xtVnq8A1vtd)** — Fall Out Boy
 <!-- now-playing:end -->
 
 ### Selected work
