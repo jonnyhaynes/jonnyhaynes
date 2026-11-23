@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[All These Things That I've Done - Radio Edit](https://open.spotify.com/track/0XMJx5ZtuHPqdzncH7kX1L)** — The Killers
+> On the turntable: **[Resistance](https://open.spotify.com/track/1C2QJNTmsTxCDBuIgai8QV)** — Muse
 <!-- now-playing:end -->
 
 ### Selected work
