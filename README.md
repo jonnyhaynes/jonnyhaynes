@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> Last on the turntable: **[War Pigs - 2009 Remaster](https://open.spotify.com/track/6TYQRlRci6AkVrN9a5C7ne)** — Black Sabbath
+> On the turntable: **[Underneath the Tree](https://open.spotify.com/track/3nAp4IvdMPPWEH9uuXFFV5)** — Kelly Clarkson
 <!-- now-playing:end -->
 
 ### Selected work
