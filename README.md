@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[In Too Deep - Remastered 2026](https://open.spotify.com/track/1ZKvmSOiTYdhapC4eGu7Yq)** — Sum 41
+> On the turntable: **[Bohemian Like You](https://open.spotify.com/track/3APHT3KjbHi9OllkVQsuXF)** — The Dandy Warhols
 <!-- now-playing:end -->
 
 ### Selected work
