@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Take Me Out](https://open.spotify.com/track/20I8RduZC2PWMWTDCZuuAN)** — Franz Ferdinand
+> On the turntable: **[Bones](https://open.spotify.com/track/4shKoD4U0rsE6UDjyPEjyK)** — The Killers
 <!-- now-playing:end -->
 
 ### Selected work
