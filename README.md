@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Human](https://open.spotify.com/track/1sTsuZTdANkiFd7T34H3nb)** — The Killers
+> On the turntable: **[Welcome to the Black Parade](https://open.spotify.com/track/5wQnmLuC1W7ATsArWACrgW)** — My Chemical Romance
 <!-- now-playing:end -->
 
 ### Selected work
