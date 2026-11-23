@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Walk](https://open.spotify.com/track/76Je5Wklky23mVoxiRszcN)** — Foo Fighters
+> On the turntable: **[In Too Deep - Remastered 2026](https://open.spotify.com/track/1ZKvmSOiTYdhapC4eGu7Yq)** — Sum 41
 <!-- now-playing:end -->
 
 ### Selected work
