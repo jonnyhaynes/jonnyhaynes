@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Never Miss A Beat](https://open.spotify.com/track/0bXhjlgUddDlJzHOeVM4Tq)** — Kaiser Chiefs
+> On the turntable: **[1979](https://open.spotify.com/track/0jiEKj0fXevcv46JXUdcKh)** — The Smashing Pumpkins
 <!-- now-playing:end -->
 
 ### Selected work
