@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Thnks fr th Mmrs](https://open.spotify.com/track/3Zwu2K0Qa5sT6teCCHPShP)** — Fall Out Boy
+> On the turntable: **[Tick Tick Boom](https://open.spotify.com/track/7xl2ZaOnKAxJyrkIQe2S43)** — The Hives
 <!-- now-playing:end -->
 
 ### Selected work
