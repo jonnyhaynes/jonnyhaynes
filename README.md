@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[When You Were Young](https://open.spotify.com/track/70wYA8oYHoMzhRRkARoMhU)** — The Killers
+> On the turntable: **[Girls & Boys](https://open.spotify.com/track/5CeL9C3bsoe4yzYS1Qz8cw)** — Blur
 <!-- now-playing:end -->
 
 ### Selected work
