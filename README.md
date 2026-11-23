@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Girls & Boys](https://open.spotify.com/track/5CeL9C3bsoe4yzYS1Qz8cw)** — Blur
+> On the turntable: **[Human](https://open.spotify.com/track/1sTsuZTdANkiFd7T34H3nb)** — The Killers
 <!-- now-playing:end -->
 
 ### Selected work
