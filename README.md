@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Starlight - Radio Edit](https://open.spotify.com/track/1HrPvGxk5GVWo7VbYEno8H)** — The Supermen Lovers, Mani Hoffman
+> On the turntable: **[Hey Boy Hey Girl](https://open.spotify.com/track/7kXmJwrZGIhDaLT9sNo3ut)** — The Chemical Brothers
 <!-- now-playing:end -->
 
 ### Selected work
