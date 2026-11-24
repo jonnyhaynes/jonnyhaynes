@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Push It](https://open.spotify.com/track/6O7pihLJgeqxUnG7u9oYL2)** — Static-X
+> On the turntable: **[Starlight - Radio Edit](https://open.spotify.com/track/1HrPvGxk5GVWo7VbYEno8H)** — The Supermen Lovers, Mani Hoffman
 <!-- now-playing:end -->
 
 ### Selected work
