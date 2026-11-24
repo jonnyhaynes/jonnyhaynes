@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Out Of Style](https://open.spotify.com/track/06nmwVr0Ev16QnVXsQXSf1)** — Limp Bizkit
+> On the turntable: **[Dad Vibes](https://open.spotify.com/track/2ppAkaBj4vaL0qsFm1TOKI)** — Limp Bizkit
 <!-- now-playing:end -->
 
 ### Selected work
