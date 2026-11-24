@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Snacky Poo](https://open.spotify.com/track/3nEZLrSP1k6d7k5xJYfBft)** — Limp Bizkit
+> On the turntable: **[Push It](https://open.spotify.com/track/6O7pihLJgeqxUnG7u9oYL2)** — Static-X
 <!-- now-playing:end -->
 
 ### Selected work
