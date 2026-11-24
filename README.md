@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[You Bring Out The Worst In Me](https://open.spotify.com/track/6Y4Vb1MUkFWvuzs5ckcRAQ)** — Limp Bizkit
+> On the turntable: **[Snacky Poo](https://open.spotify.com/track/3nEZLrSP1k6d7k5xJYfBft)** — Limp Bizkit
 <!-- now-playing:end -->
 
 ### Selected work
