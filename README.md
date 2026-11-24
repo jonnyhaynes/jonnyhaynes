@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Hello](https://open.spotify.com/track/2Hy89WQAxszEUQAvpja0nx)** — Martin Solveig, Dragonette
+> On the turntable: **[Bingo Bango - Tom Staar & Kryder Remix](https://open.spotify.com/track/2CHMS3AzBb1nyWODwtBc1z)** — Basement Jaxx, Tom Staar, Kryder
 <!-- now-playing:end -->
 
 ### Selected work
