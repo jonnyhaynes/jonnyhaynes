@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> Last on the turntable: **[Starlight](https://open.spotify.com/track/3skn2lauGk7Dx6bVIt5DVj)** — Muse
+> On the turntable: **[Out Of Style](https://open.spotify.com/track/06nmwVr0Ev16QnVXsQXSf1)** — Limp Bizkit
 <!-- now-playing:end -->
 
 ### Selected work
