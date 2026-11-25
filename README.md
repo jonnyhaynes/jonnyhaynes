@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[The Myth](https://open.spotify.com/track/3TkEc9CQw9CgHMtXEHEhKD)** — DOWN
+> On the turntable: **[Merciful Fate](https://open.spotify.com/track/3JfJu6yOI5bigOiW4g9NMk)** — DOWN, King Diamond
 <!-- now-playing:end -->
 
 ### Selected work
