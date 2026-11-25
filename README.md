@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[The Rockafeller Skank](https://open.spotify.com/track/5AgCO3dc2kuSicCsw09YCA)** — Fatboy Slim
+> On the turntable: **[Praise You](https://open.spotify.com/track/1FS21kclHQ2vVi3U1ZxETc)** — Fatboy Slim
 <!-- now-playing:end -->
 
 ### Selected work
