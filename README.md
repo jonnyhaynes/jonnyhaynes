@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Another Chance - Radio Edit](https://open.spotify.com/track/0EoGXXi91KSqAIY7SSgizW)** — Roger Sanchez
+> On the turntable: **[Boogie 2Nite - Seamus Haji Big Love Edit](https://open.spotify.com/track/3bk3zYhtBchef1oBsSMrtv)** — Booty Luv
 <!-- now-playing:end -->
 
 ### Selected work
