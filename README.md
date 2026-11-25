@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Bingo Bango - Tom Staar & Kryder Remix](https://open.spotify.com/track/2CHMS3AzBb1nyWODwtBc1z)** — Basement Jaxx, Tom Staar, Kryder
+> On the turntable: **[Make A Move On Me](https://open.spotify.com/track/4twa5BOerk6oQtCth5o7kj)** — Joey Negro, Dave 'Love' Lee
 <!-- now-playing:end -->
 
 ### Selected work
