@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Merry Christmas Everyone](https://open.spotify.com/track/2TE4xW3ImvpltVU0cPcKUn)** — Shakin' Stevens
+> Last on the turntable: **[Merry Christmas Everyone](https://open.spotify.com/track/2TE4xW3ImvpltVU0cPcKUn)** — Shakin' Stevens
 <!-- now-playing:end -->
 
 ### Selected work
