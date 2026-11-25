@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[With Me - First Dance Version](https://open.spotify.com/track/00xk45HOgAyStA7KcgspzT)** — Sum 41, Deryck Whibley
+> On the turntable: **[Heya](https://open.spotify.com/track/1phV9t2iyMfjXxGygcQ75k)** — Greta Van Fleet
 <!-- now-playing:end -->
 
 ### Selected work
