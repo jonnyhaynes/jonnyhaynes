@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[U Don't Know Me \(feat. Duane Harden\)](https://open.spotify.com/track/0TN9m8rp3ZuNi4JwCKSans)** — Armand Van Helden, Duane Harden
+> On the turntable: **[Another Chance - Radio Edit](https://open.spotify.com/track/0EoGXXi91KSqAIY7SSgizW)** — Roger Sanchez
 <!-- now-playing:end -->
 
 ### Selected work
