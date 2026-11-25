@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Drop the Pressure - Club Mix](https://open.spotify.com/track/4dmDrGySyxYklBQVkG66LB)** — Mylo
+> On the turntable: **[U Don't Know Me \(feat. Duane Harden\)](https://open.spotify.com/track/0TN9m8rp3ZuNi4JwCKSans)** — Armand Van Helden, Duane Harden
 <!-- now-playing:end -->
 
 ### Selected work
