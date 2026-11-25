@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[If I Don't Go](https://open.spotify.com/track/5XXXFERLsHPaaO4TI4KC8b)** — Nickelback
+> On the turntable: **[Simple Song](https://open.spotify.com/track/7mHDFFavGcAyqJljizsj0U)** — Nickelback
 <!-- now-playing:end -->
 
 ### Selected work
