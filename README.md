@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Run Rudolph Run](https://open.spotify.com/track/4Y3e4fEIH4lrk4AKlHXlCp)** — Chuck Berry
+> On the turntable: **[Somewhere Only We Know](https://open.spotify.com/track/6nYEkOrpEjeNV3MBLwoZBG)** — Lily Allen
 <!-- now-playing:end -->
 
 ### Selected work
