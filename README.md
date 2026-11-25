@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[I Already Know](https://open.spotify.com/track/2nP86eHtndi7lglaxkrZx9)** — Nickelback
+> On the turntable: **[If I Don't Go](https://open.spotify.com/track/5XXXFERLsHPaaO4TI4KC8b)** — Nickelback
 <!-- now-playing:end -->
 
 ### Selected work
