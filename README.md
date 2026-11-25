@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Rear View Mirror](https://open.spotify.com/track/4BzGQjvOeDq8R4gOCXLVSU)** — Royal Blood
+> On the turntable: **[With Me - First Dance Version](https://open.spotify.com/track/00xk45HOgAyStA7KcgspzT)** — Sum 41, Deryck Whibley
 <!-- now-playing:end -->
 
 ### Selected work
