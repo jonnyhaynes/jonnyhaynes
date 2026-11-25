@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Praise You](https://open.spotify.com/track/1FS21kclHQ2vVi3U1ZxETc)** — Fatboy Slim
+> On the turntable: **[Gypsy Woman \(She's Homeless\) \(La Da Dee La Da Da\) - Radio Edit](https://open.spotify.com/track/4UJ1AKSbXAbPlPVFe66wK7)** — Crystal Waters
 <!-- now-playing:end -->
 
 ### Selected work
