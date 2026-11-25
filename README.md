@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[X-M@$](https://open.spotify.com/track/1a8UIPEA1syyBSNhWwRfrY)** — Corey Taylor
+> On the turntable: **[Run Rudolph Run](https://open.spotify.com/track/4Y3e4fEIH4lrk4AKlHXlCp)** — Chuck Berry
 <!-- now-playing:end -->
 
 ### Selected work
