@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Weapon of Choice](https://open.spotify.com/track/1sooHNTnK4CAn7HLTU3Q59)** — Fatboy Slim
+> On the turntable: **[At Night - Purple Disco Machine Remix](https://open.spotify.com/track/5PPE2ntHCFTW2BeycuEsCK)** — Shakedown, Purple Disco Machine
 <!-- now-playing:end -->
 
 ### Selected work
