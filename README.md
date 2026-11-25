@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Disco's Revenge - Mole Hole Dirty Mix](https://open.spotify.com/track/2TiHRPyp8s3oflTqMtcrGn)** — Gusto
+> On the turntable: **[Where's Your Head At](https://open.spotify.com/track/3cJh89D0za2SW705fNBo3b)** — Basement Jaxx
 <!-- now-playing:end -->
 
 ### Selected work
