@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Crown In The Grave](https://open.spotify.com/track/09nFAWrKs5gM6fkNRAzZ77)** — Trivium
+> On the turntable: **[Doomsday Generation \(Slacker For The Ages\) \[feat. Walter Schreifels\]](https://open.spotify.com/track/5342n3vYxQg9xjdnbx3Ery)** — Fall Out Boy, Walter Schreifels
 <!-- now-playing:end -->
 
 ### Selected work
