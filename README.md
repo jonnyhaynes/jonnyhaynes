@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> Last on the turntable: **[Causeway Grief](https://open.spotify.com/track/5NLMquapSBwnWfDG6LaSkb)** — DOWN
+> On the turntable: **[Christmas Wrapping](https://open.spotify.com/track/3nhzTOc939C4v4ecTEZTPl)** — The Waitresses
 <!-- now-playing:end -->
 
 ### Selected work
