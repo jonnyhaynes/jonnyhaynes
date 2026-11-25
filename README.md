@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Drop the Pressure](https://open.spotify.com/track/2VtxdAH96cGcj1QzjpbHjA)** — Mylo
+> On the turntable: **[Proper Education](https://open.spotify.com/track/4LgULBGFYjbvhLRjPjFdUL)** — Luca Debonaire, Fabian
 <!-- now-playing:end -->
 
 ### Selected work
