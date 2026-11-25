@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[At Night - Purple Disco Machine Remix](https://open.spotify.com/track/5PPE2ntHCFTW2BeycuEsCK)** — Shakedown, Purple Disco Machine
+> On the turntable: **[Your Body \(feat. Michael Marshall\) - Radio Edit](https://open.spotify.com/track/2MLBXzUh9ej7XSzNArO0j3)** — Tom Novy, Michael Marshall
 <!-- now-playing:end -->
 
 ### Selected work
