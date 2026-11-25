@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Christmas Wrapping](https://open.spotify.com/track/3nhzTOc939C4v4ecTEZTPl)** — The Waitresses
+> On the turntable: **[Every Moment Is Christmas with You](https://open.spotify.com/track/5h3wfIdvzognfKJET3xOfT)** — Daði Freyr
 <!-- now-playing:end -->
 
 ### Selected work
