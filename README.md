@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Every Moment Is Christmas with You](https://open.spotify.com/track/5h3wfIdvzognfKJET3xOfT)** — Daði Freyr
+> On the turntable: **[X-M@$](https://open.spotify.com/track/1a8UIPEA1syyBSNhWwRfrY)** — Corey Taylor
 <!-- now-playing:end -->
 
 ### Selected work
