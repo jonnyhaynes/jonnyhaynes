@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[The Rhythm of the Night](https://open.spotify.com/track/4oUr6mgNSjQjyGs8kbXzU5)** — Corona
+> On the turntable: **[Drop the Pressure - Club Mix](https://open.spotify.com/track/4dmDrGySyxYklBQVkG66LB)** — Mylo
 <!-- now-playing:end -->
 
 ### Selected work
