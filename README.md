@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Bottled Dreams](https://open.spotify.com/track/196LfvytlHg0lTUrZSCYqn)** — Nickelback
+> On the turntable: **[Crown In The Grave](https://open.spotify.com/track/09nFAWrKs5gM6fkNRAzZ77)** — Trivium
 <!-- now-playing:end -->
 
 ### Selected work
