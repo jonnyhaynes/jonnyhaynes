@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Call on Me](https://open.spotify.com/track/1As4KC3YYpu89aBt7EqL2m)** — Eric Prydz
+> On the turntable: **[Drop the Pressure](https://open.spotify.com/track/2VtxdAH96cGcj1QzjpbHjA)** — Mylo
 <!-- now-playing:end -->
 
 ### Selected work
