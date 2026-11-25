@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[They Walk the Night](https://open.spotify.com/track/4uLWJY19BYEBGhJGmvUUVb)** — DOWN
+> Last on the turntable: **[Causeway Grief](https://open.spotify.com/track/5NLMquapSBwnWfDG6LaSkb)** — DOWN
 <!-- now-playing:end -->
 
 ### Selected work
