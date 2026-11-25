@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Simple Song](https://open.spotify.com/track/7mHDFFavGcAyqJljizsj0U)** — Nickelback
+> On the turntable: **[Bottled Dreams](https://open.spotify.com/track/196LfvytlHg0lTUrZSCYqn)** — Nickelback
 <!-- now-playing:end -->
 
 ### Selected work
