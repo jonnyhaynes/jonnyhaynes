@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Make A Move On Me](https://open.spotify.com/track/4twa5BOerk6oQtCth5o7kj)** — Joey Negro, Dave 'Love' Lee
+> On the turntable: **[The Rhythm of the Night](https://open.spotify.com/track/4oUr6mgNSjQjyGs8kbXzU5)** — Corona
 <!-- now-playing:end -->
 
 ### Selected work
