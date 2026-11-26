@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Another One Bites The Dust - Live in Budapest](https://open.spotify.com/track/6rcR2RV8XtfyAsmXURAGfp)** — Queen
+> On the turntable: **[Looks Like It's Gonna Be A Good Night - Improv / Live in Budapest](https://open.spotify.com/track/2ak5zjDHR72QeIngqgS1DB)** — Queen
 <!-- now-playing:end -->
 
 ### Selected work
