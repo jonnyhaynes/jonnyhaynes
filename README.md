@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Can't Get Enough Of You Baby](https://open.spotify.com/track/0UVIXwqfTjefBbDyY60MWB)** — Smash Mouth
+> On the turntable: **[Bohemian Rhapsody](https://open.spotify.com/track/2JiDi0qAXsPwhPqA2qaKGt)** — Queen
 <!-- now-playing:end -->
 
 ### Selected work
