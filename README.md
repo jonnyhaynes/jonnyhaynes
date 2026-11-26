@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Seven Nation Army](https://open.spotify.com/track/3dPQuX8Gs42Y7b454ybpMR)** — The White Stripes
+> On the turntable: **[Beat It](https://open.spotify.com/track/3BovdzfaX4jb5KFQwoPfAw)** — Michael Jackson
 <!-- now-playing:end -->
 
 ### Selected work
