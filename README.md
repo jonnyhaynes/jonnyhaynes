@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Clint Eastwood](https://open.spotify.com/track/1RKUoGiLEbcXN4GY4spQDx)** — Gorillaz, Del The Funky Homosapien
+> On the turntable: **[Seven Nation Army](https://open.spotify.com/track/3dPQuX8Gs42Y7b454ybpMR)** — The White Stripes
 <!-- now-playing:end -->
 
 ### Selected work
