@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Twice-Told Tales](https://open.spotify.com/track/4oJQdkxoxOUcOLAqxPuPfG)** — DOWN
+> Last on the turntable: **[Twice-Told Tales](https://open.spotify.com/track/4oJQdkxoxOUcOLAqxPuPfG)** — DOWN
 <!-- now-playing:end -->
 
 ### Selected work
