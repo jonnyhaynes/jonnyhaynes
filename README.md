@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[A Kind of Magic - Live in Budapest](https://open.spotify.com/track/33XQerjH4OCMwDJ42y6QBN)** — Queen
+> On the turntable: **[Another One Bites The Dust - Live in Budapest](https://open.spotify.com/track/6rcR2RV8XtfyAsmXURAGfp)** — Queen
 <!-- now-playing:end -->
 
 ### Selected work
