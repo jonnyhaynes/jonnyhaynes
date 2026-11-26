@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Now I'm Here - Live in Budapest](https://open.spotify.com/track/1xEdef2OTnSzOQE0M7u8Rh)** — Queen
+> On the turntable: **[Tavaszi Szél Vizet Áraszt - Live in Budapest](https://open.spotify.com/track/6wln2Oj9v7pCGDq56u1YuY)** — Queen
 <!-- now-playing:end -->
 
 ### Selected work
