@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Tavaszi Szél Vizet Áraszt - Live in Budapest](https://open.spotify.com/track/6wln2Oj9v7pCGDq56u1YuY)** — Queen
+> Last on the turntable: **[Is This the World We Created...? - Live in Budapest](https://open.spotify.com/track/4h46eGWss82Qj98T301GdK)** — Queen
 <!-- now-playing:end -->
 
 ### Selected work
