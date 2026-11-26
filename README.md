@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Journey To The Island](https://open.spotify.com/track/0QCvok3TPhk7JhQF0gYmBw)** — John Williams
+> On the turntable: **[All Star](https://open.spotify.com/track/3cfOd4CMv2snFaKAnMdnvK)** — Smash Mouth
 <!-- now-playing:end -->
 
 ### Selected work
