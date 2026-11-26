@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Seven Seas of Rhye - Live in Budapest](https://open.spotify.com/track/5qIhsZGOu9gvOLFpsYepdE)** — Queen
+> On the turntable: **[A Kind of Magic - Live in Budapest](https://open.spotify.com/track/33XQerjH4OCMwDJ42y6QBN)** — Queen
 <!-- now-playing:end -->
 
 ### Selected work
