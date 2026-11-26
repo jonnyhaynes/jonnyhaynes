@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[The Myth](https://open.spotify.com/track/3TkEc9CQw9CgHMtXEHEhKD)** — DOWN
+> On the turntable: **[Blood Oath](https://open.spotify.com/track/7o4qniKavvDIVI3G9LpY6m)** — DOWN
 <!-- now-playing:end -->
 
 ### Selected work
