@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Turn Out the Light](https://open.spotify.com/track/1Z2oRlUOUQqqblWy8oIaEv)** — DOWN
+> On the turntable: **[Causeway Grief](https://open.spotify.com/track/5NLMquapSBwnWfDG6LaSkb)** — DOWN
 <!-- now-playing:end -->
 
 ### Selected work
