@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Blood Oath](https://open.spotify.com/track/7o4qniKavvDIVI3G9LpY6m)** — DOWN
+> On the turntable: **[They Walk the Night](https://open.spotify.com/track/4uLWJY19BYEBGhJGmvUUVb)** — DOWN
 <!-- now-playing:end -->
 
 ### Selected work
