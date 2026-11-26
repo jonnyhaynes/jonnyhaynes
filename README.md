@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Merciful Fate](https://open.spotify.com/track/3JfJu6yOI5bigOiW4g9NMk)** — DOWN, King Diamond
+> On the turntable: **[Turn Out the Light](https://open.spotify.com/track/1Z2oRlUOUQqqblWy8oIaEv)** — DOWN
 <!-- now-playing:end -->
 
 ### Selected work
