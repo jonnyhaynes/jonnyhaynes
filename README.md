@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Chicago](https://open.spotify.com/track/5BKKy9fIJL5uM9fz1SnqyP)** — Michael Jackson
+> On the turntable: **[Theme From Jurassic Park](https://open.spotify.com/track/2TZbQZXOuR8osP2AK8yYMN)** — John Williams
 <!-- now-playing:end -->
 
 ### Selected work
