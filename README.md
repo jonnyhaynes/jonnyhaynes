@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Somebody To Love](https://open.spotify.com/track/18OMrZoyyZuVy06FttIFhq)** — Queen
+> On the turntable: **[One Vision - Live in Budapest](https://open.spotify.com/track/1hasfejsXxlEee9H7w3pc4)** — Queen
 <!-- now-playing:end -->
 
 ### Selected work
