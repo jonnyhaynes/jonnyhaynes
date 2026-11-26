@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Under Pressure \(feat. David Bowie\)](https://open.spotify.com/track/2nrG5UtAcqXbYttu7MXP1p)** — Queen, David Bowie
+> On the turntable: **[Killer Queen](https://open.spotify.com/track/46L5lm1Xzwr0TExEMpObtq)** — Queen
 <!-- now-playing:end -->
 
 ### Selected work
