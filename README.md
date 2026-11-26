@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Beat It](https://open.spotify.com/track/3BovdzfaX4jb5KFQwoPfAw)** — Michael Jackson
+> On the turntable: **[Chicago](https://open.spotify.com/track/5BKKy9fIJL5uM9fz1SnqyP)** — Michael Jackson
 <!-- now-playing:end -->
 
 ### Selected work
