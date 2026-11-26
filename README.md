@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Causeway Grief](https://open.spotify.com/track/5NLMquapSBwnWfDG6LaSkb)** — DOWN
+> On the turntable: **[The Message](https://open.spotify.com/track/0RBYB9xbm0mt0yCeztwF2H)** — DOWN
 <!-- now-playing:end -->
 
 ### Selected work
