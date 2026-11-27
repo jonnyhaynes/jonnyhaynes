@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[A Little Love](https://open.spotify.com/track/31MkFKvAwHESUpmJz4haPw)** — Biffy Clyro
+> On the turntable: **[Flathead](https://open.spotify.com/track/7BMKUZ2LFwRJxIuTe7e9xY)** — The Fratellis
 <!-- now-playing:end -->
 
 ### Selected work
