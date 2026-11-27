@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Slumville Sunrise](https://open.spotify.com/track/64sQA5MdiaPhxbHi8xrQJG)** — Jake Bugg
+> On the turntable: **[Thrash Unreal](https://open.spotify.com/track/3c3XnCPwxGhQEHFxxjQcWe)** — Against Me!
 <!-- now-playing:end -->
 
 ### Selected work
