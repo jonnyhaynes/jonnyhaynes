@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Starburster](https://open.spotify.com/track/09ttHg3ZNVgDlYBZa1ZBw0)** — Fontaines D.C.
+> On the turntable: **[Husband](https://open.spotify.com/track/51qmrEjG6Q60061gVNORXo)** — Blossoms
 <!-- now-playing:end -->
 
 ### Selected work
