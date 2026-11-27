@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Tall Poppies](https://open.spotify.com/track/0nmcYyDhhYtYuDxU3Nm9Za)** — Jake Bugg
+> On the turntable: **[Nowhere All Along](https://open.spotify.com/track/218GSEFjtOTXH4zQOsoOLY)** — Royal Blood
 <!-- now-playing:end -->
 
 ### Selected work
