@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[The Endlessness and the Space Between](https://open.spotify.com/track/2ul0jy3qm5C9sSEFRJu2yk)** — Will Varley
+> On the turntable: **[The Science of Selling Yourself Short](https://open.spotify.com/track/1iD0a0plhO55cWEJa5UGcZ)** — Less Than Jake
 <!-- now-playing:end -->
 
 ### Selected work
