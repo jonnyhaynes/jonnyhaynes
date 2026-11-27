@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Send me a Bird](https://open.spotify.com/track/436JoNdYRW7oH71OUp3Tcx)** — Beans on Toast
+> On the turntable: **[A Little Love](https://open.spotify.com/track/31MkFKvAwHESUpmJz4haPw)** — Biffy Clyro
 <!-- now-playing:end -->
 
 ### Selected work
