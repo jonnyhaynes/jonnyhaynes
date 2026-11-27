@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Lady Percy](https://open.spotify.com/track/6PhGJDzaYdMAdlQbCgv6Ep)** — King Charles, Charles Costa
+> On the turntable: **[Gave You Everything](https://open.spotify.com/track/4C0ZP5m9z0pfefQHUhach5)** — The Interrupters
 <!-- now-playing:end -->
 
 ### Selected work
