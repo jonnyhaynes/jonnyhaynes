@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[The Science of Selling Yourself Short](https://open.spotify.com/track/1iD0a0plhO55cWEJa5UGcZ)** — Less Than Jake
+> On the turntable: **[You're Not Alone](https://open.spotify.com/track/5grhhLzZb2wOYRjgVmnKEa)** — The Lottery Winners
 <!-- now-playing:end -->
 
 ### Selected work
