@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Seize the Night \(Live at Shepherd's Bush Empire, London, February 2018\)](https://open.spotify.com/track/6twCWp9ZERFcbMCg8S8L9R)** — Will Varley, Frank Turner, Beans on Toast, Sean McGowan
+> On the turntable: **[Red Lights](https://open.spotify.com/track/7g7AZlrRi2PiyvfsGMdbaM)** — Brian Fallon
 <!-- now-playing:end -->
 
 ### Selected work
