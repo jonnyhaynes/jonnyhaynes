@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Mother Never Told You](https://open.spotify.com/track/30LAPViPx3cUA8KUGNk4rP)** — Royal Blood
+> On the turntable: **[From the Cliff](https://open.spotify.com/track/1HRdpaqI9zPdHCOkUyIzVR)** — Queens of the Stone Age
 <!-- now-playing:end -->
 
 ### Selected work
