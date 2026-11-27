@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[NOTHING BETTER THAN THIS](https://open.spotify.com/track/7dl7Ag4JMsdUvXlX0xLFIm)** — Kasabian
+> On the turntable: **[Recovery](https://open.spotify.com/track/49ccDOSipaIJ4PcmovJy4h)** — Frank Turner
 <!-- now-playing:end -->
 
 ### Selected work
