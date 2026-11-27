@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[7563](https://open.spotify.com/track/2vJPGLhq3pub8fG9wAFN0Y)** — Florence Road
+> On the turntable: **[In Motion](https://open.spotify.com/track/28NYLsrzqywPdnINdVs2zc)** — The Snuts
 <!-- now-playing:end -->
 
 ### Selected work
