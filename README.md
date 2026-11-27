@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[The Closer](https://open.spotify.com/track/4Q1WrDfTQHJMvLdVBak7O5)** — Royal Blood
+> On the turntable: **[SILVER APPLE EYES](https://open.spotify.com/track/6IvrPhGXKrr2iWweWJNWeY)** — Kasabian
 <!-- now-playing:end -->
 
 ### Selected work
