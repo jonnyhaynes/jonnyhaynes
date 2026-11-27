@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Weddings and Wars](https://open.spotify.com/track/1VRH5KtyOrWYU8KqpfFfc1)** — Will Varley
+> On the turntable: **[Honey Magnolia](https://open.spotify.com/track/4gvt7bNmtNXUxjqzl1B7nd)** — Brian Fallon
 <!-- now-playing:end -->
 
 ### Selected work
