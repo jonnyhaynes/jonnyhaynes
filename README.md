@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Be More Kind](https://open.spotify.com/track/1AN3Ljpu2jB6fgtWAyU3oW)** — Frank Turner
+> On the turntable: **[Plain Sailing Weather](https://open.spotify.com/track/0tfgbbx3n9EFL4fKIAQRBC)** — Frank Turner
 <!-- now-playing:end -->
 
 ### Selected work
