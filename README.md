@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Zombieland](https://open.spotify.com/track/1aIxHZHw2brTarSUBnIVXD)** — Jake Bugg
+> On the turntable: **[Seize the Night \(Live at Shepherd's Bush Empire, London, February 2018\)](https://open.spotify.com/track/6twCWp9ZERFcbMCg8S8L9R)** — Will Varley, Frank Turner, Beans on Toast, Sean McGowan
 <!-- now-playing:end -->
 
 ### Selected work
