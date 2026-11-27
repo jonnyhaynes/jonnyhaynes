@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Honey Magnolia](https://open.spotify.com/track/4gvt7bNmtNXUxjqzl1B7nd)** — Brian Fallon
+> On the turntable: **[Great Expectations](https://open.spotify.com/track/7qM69E1NUdJqHSjxP0yot0)** — The Gaslight Anthem
 <!-- now-playing:end -->
 
 ### Selected work
