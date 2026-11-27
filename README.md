@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[SILVER APPLE EYES](https://open.spotify.com/track/6IvrPhGXKrr2iWweWJNWeY)** — Kasabian
+> On the turntable: **[Come and Get It](https://open.spotify.com/track/5TdFW6dKbZBlDrkMgfuXwJ)** — Dylan John Thomas
 <!-- now-playing:end -->
 
 ### Selected work
