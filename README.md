@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Thrash Unreal](https://open.spotify.com/track/3c3XnCPwxGhQEHFxxjQcWe)** — Against Me!
+> On the turntable: **[Send me a Bird](https://open.spotify.com/track/436JoNdYRW7oH71OUp3Tcx)** — Beans on Toast
 <!-- now-playing:end -->
 
 ### Selected work
