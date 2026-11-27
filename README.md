@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Send My Love to the System](https://open.spotify.com/track/1Xm72KZKNkERkh7GlmMywf)** — Will Varley
+> On the turntable: **[Lady Percy](https://open.spotify.com/track/6PhGJDzaYdMAdlQbCgv6Ep)** — King Charles, Charles Costa
 <!-- now-playing:end -->
 
 ### Selected work
