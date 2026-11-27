@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Come and Get It](https://open.spotify.com/track/5TdFW6dKbZBlDrkMgfuXwJ)** — Dylan John Thomas
+> On the turntable: **[Tall Poppies](https://open.spotify.com/track/0nmcYyDhhYtYuDxU3Nm9Za)** — Jake Bugg
 <!-- now-playing:end -->
 
 ### Selected work
