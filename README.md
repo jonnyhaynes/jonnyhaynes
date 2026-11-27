@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Flathead](https://open.spotify.com/track/7BMKUZ2LFwRJxIuTe7e9xY)** — The Fratellis
+> On the turntable: **[Girls Who Play Guitar](https://open.spotify.com/track/6Hfy3vLNzLgArUk8TM3Nak)** — Maximo Park
 <!-- now-playing:end -->
 
 ### Selected work
