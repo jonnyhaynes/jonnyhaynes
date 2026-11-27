@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Here's Lookin At You, Kid](https://open.spotify.com/track/5eSDXKYGLiMdMoIjpU4ahO)** — The Gaslight Anthem
+> Last on the turntable: **[Here's Lookin At You, Kid](https://open.spotify.com/track/5eSDXKYGLiMdMoIjpU4ahO)** — The Gaslight Anthem
 <!-- now-playing:end -->
 
 ### Selected work
