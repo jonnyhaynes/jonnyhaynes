@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[From the Cliff](https://open.spotify.com/track/1HRdpaqI9zPdHCOkUyIzVR)** — Queens of the Stone Age
+> On the turntable: **[Dine N'Dash](https://open.spotify.com/track/22a006OJm48zH87SkPpSVx)** — The Strokes
 <!-- now-playing:end -->
 
 ### Selected work
