@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Thatcher Fucked the Kids](https://open.spotify.com/track/3rmlj500iVFRuyMypEbfDW)** — Frank Turner
+> On the turntable: **[As for My Soul](https://open.spotify.com/track/0ol5D2Qn1qMy2iqGPne93c)** — Will Varley, Frank Turner, Beans On Toast
 <!-- now-playing:end -->
 
 ### Selected work
