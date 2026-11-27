@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> Last on the turntable: **[Is This the World We Created...? - Live in Budapest](https://open.spotify.com/track/4h46eGWss82Qj98T301GdK)** — Queen
+> On the turntable: **[Six Shot Morning](https://open.spotify.com/track/3GOOBbC0uedCdUQZfSrwOp)** — Fontaines D.C.
 <!-- now-playing:end -->
 
 ### Selected work
