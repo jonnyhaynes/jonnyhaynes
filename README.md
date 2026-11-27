@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Dine N'Dash](https://open.spotify.com/track/22a006OJm48zH87SkPpSVx)** — The Strokes
+> On the turntable: **[The Rush](https://open.spotify.com/track/3AEFYYMQ2tQLiS9WXLQpX4)** — Editors
 <!-- now-playing:end -->
 
 ### Selected work
