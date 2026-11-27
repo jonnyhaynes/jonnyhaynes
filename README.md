@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Great Expectations](https://open.spotify.com/track/7qM69E1NUdJqHSjxP0yot0)** — The Gaslight Anthem
+> On the turntable: **[The Endlessness and the Space Between](https://open.spotify.com/track/2ul0jy3qm5C9sSEFRJu2yk)** — Will Varley
 <!-- now-playing:end -->
 
 ### Selected work
