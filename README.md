@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Photosynthesis](https://open.spotify.com/track/3L6N1fVswDssHGFmHWJUie)** — Frank Turner
+> On the turntable: **[Be More Kind](https://open.spotify.com/track/1AN3Ljpu2jB6fgtWAyU3oW)** — Frank Turner
 <!-- now-playing:end -->
 
 ### Selected work
