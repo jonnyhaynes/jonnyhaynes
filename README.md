@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Red Lights](https://open.spotify.com/track/7g7AZlrRi2PiyvfsGMdbaM)** — Brian Fallon
+> On the turntable: **[Tattoos](https://open.spotify.com/track/230rdY9ElMcbnTxnC9OmUv)** — Frank Turner
 <!-- now-playing:end -->
 
 ### Selected work
