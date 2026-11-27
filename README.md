@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Husband](https://open.spotify.com/track/51qmrEjG6Q60061gVNORXo)** — Blossoms
+> On the turntable: **[Insignificant Other](https://open.spotify.com/track/6JxNj2lPGxNtcH1C0fdH85)** — Queens of the Stone Age
 <!-- now-playing:end -->
 
 ### Selected work
