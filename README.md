@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[In Motion](https://open.spotify.com/track/28NYLsrzqywPdnINdVs2zc)** — The Snuts
+> On the turntable: **[Mother Never Told You](https://open.spotify.com/track/30LAPViPx3cUA8KUGNk4rP)** — Royal Blood
 <!-- now-playing:end -->
 
 ### Selected work
