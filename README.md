@@ -26,7 +26,7 @@ I build high-impact web and mobile products with a design-led eye — mostly at
 2006.
 
 <!-- now-playing:start -->
-> On the turntable: **[Insignificant Other](https://open.spotify.com/track/6JxNj2lPGxNtcH1C0fdH85)** — Queens of the Stone Age
+> On the turntable: **[7563](https://open.spotify.com/track/2vJPGLhq3pub8fG9wAFN0Y)** — Florence Road
 <!-- now-playing:end -->
 
 ### Selected work
